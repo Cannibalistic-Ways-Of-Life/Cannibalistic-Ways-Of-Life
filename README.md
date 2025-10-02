@@ -1,16 +1,14 @@
-## Hi there 👋
+· · ────── ·𖥸· ────── · ·
 
-<!--
-**ClowningAround0/ClowningAround0** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+🫀 ╰► Welcome to my home :p major spiderpunk fan
 
-Here are some ideas to get you started:
+⚰️ ╰► `Gender: Nonbinary [They/Them]`
+  
+🎸 ╰► Aromantic & Pansexual  
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+🖤 ╰► `Traumagenic system of 200+ alters!! 18+ in age!` 
+
+🍄 ╰► To learn more about us :3  
+[Our carrd!](https://thedeadbeatsociety0.carrd.co) 
+
+· · ────── ·𖥸· ────── · ·
