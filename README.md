@@ -1,14 +1,19 @@
 · · ────── ·𖥸· ────── · ·
 
-🫀 ╰► Welcome to my home :p major spiderpunk fan
+:anatomical_heart:
+   *╰►* Haiiiii :p Call me Vemödalen or Watashiato; major spiderpunk, pokemon(mimikyu my baby :3), life is strange, undertale, sally face fan
 
-⚰️ ╰► `Gender: Nonbinary [They/Them]`
-  
-🎸 ╰► Aromantic & Pansexual  
+:coffin:
+   *╰►* `Gender: Nonbinary [They/Them]`
 
-🖤 ╰► `Traumagenic system of 200+ alters!! 18+ in age!` 
+:guitar:
+   *╰►* Aromantic & Pansexual
 
-🍄 ╰► To learn more about us :3  
-[Our carrd!](https://thedeadbeatsociety0.carrd.co) 
+:black_heart:
+   *╰►* `Traumagenic system of 200+ alters!! 18+!`
+
+:mushroom: 
+   *╰►* To learn more about us :3
+[Our carrd!](https://deadpoetssocietyexe.carrd.co/)
 
 · · ────── ·𖥸· ────── · ·
