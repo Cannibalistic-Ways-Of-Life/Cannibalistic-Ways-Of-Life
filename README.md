@@ -1,7 +1,8 @@
-· · ────── ·𖥸· ────── · ·
+· · ────────── ·𖥸· ────────── · ·
 
 :anatomical_heart:
-   *╰►* Haiiiii :p Call me Vemödalen or Asta; major spiderpunk, pokemon(mimikyu my baby :3), life is strange, undertale, sally face fan
+   *╰►* Haiiiii :p Call me Vemödalen or Vemö
+   >   " *spiderpunk*|`pokemon(mimikyu my baby :3)` | *life is strange* | `undertale`  *sally face* **Sal x Larry** ***<3***
 
 :coffin:
    *╰►* `Gender: Nonbinary [They/Them]`
@@ -16,4 +17,4 @@
    *╰►* To learn more about us :3
 [Our carrd!](https://deadpoetssocietyexe.carrd.co/)
 
-· · ────── ·𖥸· ────── · ·
+· · ────────── ·𖥸· ────────── · ·
