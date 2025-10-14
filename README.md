@@ -1,8 +1,8 @@
 · · ────────── ·𖥸· ────────── · ·
 
- **Haiiiii we're the Dead Poets Society!** ||^|| 
+ **Haiiiii we're the Dead Poets Society!** **||^||** 
 
-> " Call: us Vemödalen or Vemö
+> " Call us Vemödalen or Vemö
 >
 >   " *spiderpunk*|`pokemon(mimikyu my baby :3)` | *life is strange* | `undertale`  *sally face* **Sal x Larry** ***<3***
 > 
@@ -12,9 +12,9 @@
 > 
 > **:black_heart: ►** **𖡼.𖤣𖥧𖡼.𖤣𖥧** `Traumagenic system of 200+ alters!! 18+!`
 > 
-> **:mushroom:  ►**  To learn more about us :3  ( ≖‿  ≖ ) ***Heehee*** [Our carrd!](https://deadpoetssocietyexe.carrd.co/)
+> **:mushroom:  ►**  To learn more about us :3  ( ≖‿  ≖ ) ***Heehee*** [*Our carrd!*](https://deadpoetssocietyexe.carrd.co/)   **////**   [***Important info on proship***](https://proshipresourcesfnaf.carrd.co/#)
 
-· · ────────── ·𖥸· ────────── · ·
+ · · ────────── ·𖥸· ────────── · ·
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
