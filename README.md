@@ -1,7 +1,7 @@
 · · ────── ·𖥸· ────── · ·
 
 :anatomical_heart:
-   *╰►* Haiiiii :p Call me Vemödalen or Watashiato; major spiderpunk, pokemon(mimikyu my baby :3), life is strange, undertale, sally face fan
+   *╰►* Haiiiii :p Call me Vemödalen or Asta; major spiderpunk, pokemon(mimikyu my baby :3), life is strange, undertale, sally face fan
 
 :coffin:
    *╰►* `Gender: Nonbinary [They/Them]`
