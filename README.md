@@ -1,6 +1,6 @@
 <img width="400" height="205" alt="image" src="https://github.com/user-attachments/assets/8f7b03b5-bc3e-4480-a789-1d3c4b07afe4" />
  
- **Haiiiii we're the** ${\textsf{\color{#dc1717}Dead Poets Society}}$ 
+### **Haiiiii we're the** ${\textsf{\color{#dc1717}Dead Poets Society}}$ 
 </h2> 
 
 **(˵ •̀ ᴗ - ˵ )** ─────────»»
