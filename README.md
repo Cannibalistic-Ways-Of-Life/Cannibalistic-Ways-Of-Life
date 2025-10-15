@@ -1,6 +1,6 @@
 <img width="400" height="205" alt="image" src="https://github.com/user-attachments/assets/8f7b03b5-bc3e-4480-a789-1d3c4b07afe4" />
  
- **Haiiiii we're the Dead Poets Society!** **||^||**   
+ **Haiiiii we're the Dead Poets Society!** **||^||**
  
 > " Call us Vemödalen or Vemö <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/c29e6b38-e0de-40a3-b634-99506c0f017a" />
 >
@@ -8,12 +8,11 @@
 > 
 >   **:coffin: ►** **ꉂ(˵˃ ᗜ ˂˵)** `Gender: Nonbinary [They/Them]`
 > 
-> **:anatomical_heart: ►** Aromantic & Pansexual ⠀**ദ്ദി(˵ •̀ ᴗ - ˵ )✧**
+> **:anatomical_heart: ►** Aromantic & Pansexual ⠀**ദ്ദി(˵ •̀ ᴗ - ˵ )✧**        ![](https://komarev.com/ghpvc/?username=ClowningAround0&color=000000&style=flat-flat&label=ghost+eyess&abbreviated=true)
 > 
 > **:black_heart: ►** **𖡼.𖤣𖥧𖡼.𖤣𖥧** `Traumagenic system of 200+ alters!! 18+!` 
 > 
 > **:mushroom:  ►**  To learn more about us :3  ( ≖‿  ≖ ) ***Heehee*** [*Our carrd!*](https://deadpoetssocietyexe.carrd.co/)   **////**   [***Important info on proship***](https://proshipresourcesfnaf.carrd.co/#)
-
 · · ────────── ·𖥸· ────────── · · 
 
 
