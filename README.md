@@ -4,14 +4,14 @@
 </h2> 
 
 **(˵ •̀ ᴗ - ˵ )** ─────────»»
- 
+> 
 > " Call us ${\textsf{\color{#667422}Vemödalen}}$ or ${\textsf{\color{#dc1717}Vemö}}$ <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/c29e6b38-e0de-40a3-b634-99506c0f017a" />
 >
 >   " ${\textsf{\color{#be62b8}spiderpunk}}$ |`pokemon(mimikyu my baby :3)` | *life is strange* | `undertale`  ${\textsf{\color{#93dbe6}sally face}}$ **Sal x Larry** ***<3***  <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/db07c38e-ef5d-4535-afa1-a98f6091c37e" /> 
 > 
- 
+> 
 >   **:coffin: ►** **ꉂ(˵˃ ᗜ ˂˵)** `Gender: Nonbinary [They/Them]` 
- 
+> 
 > **:anatomical_heart: ►** Aromantic & Pansexual ⠀**ദ്ദി(˵ •̀ ᴗ - ˵ )✧**        ![](https://komarev.com/ghpvc/?username=ClowningAround0&color=000000&style=flat-flat&label=ghost+eyess&abbreviated=true)
 > 
 > **:black_heart: ►** **𖡼.𖤣𖥧𖡼.𖤣𖥧** `Traumagenic system of 200+ alters!! 18+!`
