@@ -44,14 +44,14 @@
 
 **( ´･ω･)** <sub>**2.** `Anthrozoophilia an attraction to anthropomorphic animals, which falls under the furry spectrum`<sub>
 
-**٩(^ᗜ^ ) ´-** <sub>**3.** `Omniphilia refers to having all or many paraphilias`<sub>
+**٩( ^ᗜ^) ´-** <sub>**3.** `Omniphilia refers to having all or many paraphilias`<sub>
 
 **(๑ ˃̵ᴗ˂ ) ♡** <sub>**4.** `Teratophilia is an attraction to monsters` <sub> 
 
-**(๑'^'๑)︻デ═一** <sub>**5.** `Upisexual is an attraction to vampires`<sub>
+**✾(〜 ☌ω☌)〜✾** <sub>**5.** `Upisexual is an attraction to vampires`<sub>
 
 **(≧ω≦)/** <sub>**6.** ~~`Cannibal`~~ `Flag for people attracted to` ~~`eating people/partners`~~ <sub>
 
-**✾(〜 ☌ω☌)〜✾** <sub>**7.** `Autonecrophilia is attraction to oneself as a` ~~`dead`~~ `body`<sub>
+**(๑'^'๑)︻デ═一** <sub>**7.** `Autonecrophilia is attraction to oneself as a` ~~`dead`~~ `body`<sub>
 
 **( ˶°ㅁ°)** <sub>**8.** `Erotophonophilia is an attraction towards` ~~`murder`~~ `and` ~~`violence`~~ <sub>
