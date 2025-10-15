@@ -1,21 +1,24 @@
 <img width="400" height="205" alt="image" src="https://github.com/user-attachments/assets/8f7b03b5-bc3e-4480-a789-1d3c4b07afe4" />
  
- **Haiiiii we're the Dead Poets Society!** **||^||**
-─────────»»
+ **Haiiiii we're the** ${\textsf{\color{#dc1717}Dead Poets Society}}$ 
+</h2> 
+
+**(˵ •̀ ᴗ - ˵ )** ─────────»»
  
-> " Call us Vemödalen or Vemö <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/c29e6b38-e0de-40a3-b634-99506c0f017a" />
+> " Call us ${\textsf{\color{#667422}Vemödalen}}$ or ${\textsf{\color{#dc1717}Vemö}}$ <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/c29e6b38-e0de-40a3-b634-99506c0f017a" />
 >
->   " *spiderpunk*|`pokemon(mimikyu my baby :3)` | *life is strange* | `undertale`  *sally face* **Sal x Larry** ***<3***  <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/db07c38e-ef5d-4535-afa1-a98f6091c37e" />
+>   " ${\textsf{\color{#be62b8}spiderpunk}}$ |`pokemon(mimikyu my baby :3)` | *life is strange* | `undertale`  ${\textsf{\color{#93dbe6}sally face}}$ **Sal x Larry** ***<3***  <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/db07c38e-ef5d-4535-afa1-a98f6091c37e" /> 
 > 
->   **:coffin: ►** **ꉂ(˵˃ ᗜ ˂˵)** `Gender: Nonbinary [They/Them]`
-> 
+ 
+>   **:coffin: ►** **ꉂ(˵˃ ᗜ ˂˵)** `Gender: Nonbinary [They/Them]` 
+ 
 > **:anatomical_heart: ►** Aromantic & Pansexual ⠀**ദ്ദി(˵ •̀ ᴗ - ˵ )✧**        ![](https://komarev.com/ghpvc/?username=ClowningAround0&color=000000&style=flat-flat&label=ghost+eyess&abbreviated=true)
 > 
 > **:black_heart: ►** **𖡼.𖤣𖥧𖡼.𖤣𖥧** `Traumagenic system of 200+ alters!! 18+!`
 >
 > **🧠 ►** **(╥﹏╥)** **`BPD/NPD/HPD/ADHD`** | *`Dyslexia/Autism/Schizophrenia`* | **`Periodic paralasys/Short-Term Memoryloss`**
 >
-> **:mushroom:  ►**  To learn more about us :3  ( ≖‿  ≖ ) ***Heehee*** [*Our carrd!*](https://deadpoetssocietyexe.carrd.co/)   **////**   [***Important info on proship***](https://proshipresourcesfnaf.carrd.co/#)
+> **:mushroom:  ►** To learn more about ${\textsf{\color{#febf6d}us}}$ **!** :3  ( ≖‿  ≖ ) ***Heehee*** [*Our carrd!*](https://deadpoetssocietyexe.carrd.co/)   **////**   [***Important info on proship***](https://proshipresourcesfnaf.carrd.co/#)
 >
 > <img width="300" height="250" alt="image" src="https://github.com/user-attachments/assets/60e3a689-59fc-42c8-98f5-35f698638037" />
 >
@@ -43,7 +46,7 @@
 
 **٩(^ᗜ^ ) ´-** <sub>**3.** `Omniphilia refers to having all or many paraphilias`<sub>
 
-**(๑ ˃̵ᴗ˂ ) ♡** <sub>**4.** `Teratophilia is an attraction to monsters`<sub>
+**(๑ ˃̵ᴗ˂ ) ♡** <sub>**4.** `Teratophilia is an attraction to monsters` <sub> 
 
 **(๑'^'๑)︻デ═一** <sub>**5.** `Upisexual is an attraction to vampires`<sub>
 
