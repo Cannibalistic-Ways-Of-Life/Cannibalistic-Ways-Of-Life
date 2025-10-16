@@ -5,7 +5,7 @@
 
 <details>
     <summary>${\textsf{\color{#febf6d} Click for site warnings BEFORE reading!! }}$</summary> 
-      my site(s) are not sutiabe for those 14 and under, they contain mentions/images of ;; violence, murder, and gore.
+      my site(s) are not sutiabe for those 16 and under, they contain mentions/images of ;; violence, murder, gore,and sex.
     </details>
 
 **(˵ •̀ ᴗ - ˵ )** ─────────»»
@@ -72,7 +72,7 @@
 
 <div align="left">
 <details>
-    <summary>${\textsf{\color{#febf6d}✤ ‧ —– • Stamps [TW AHEAD!!!] • —– ٠ ✤ }}$</summary> 
+    <summary>${\textsf{\color{#febf6d}✤ ‧ —– • Stamps [warning!] • —– ٠ ✤ }}$</summary> 
  <img src="https://i.ibb.co/QF2X1KMT/games-minecraft.png" alt="games-minecraft" border="0">
  <img src="https://i.ibb.co/MxGqxWGX/games-undertale2.gif" alt="games-undertale2" border="0"> 
  <img src="https://i.ibb.co/PswxJ3JH/bands-greenday.gif" alt="bands-greenday" border="0"> 
@@ -106,6 +106,75 @@
 
 <div align="left">
 <details>
-    <summary>${\textsf{\color{#febf6d}✤ ‧ —– • Blinkies [TW AHEAD!!!] • —– ٠ ✤ }}$</summary> 
+    <summary>${\textsf{\color{#febf6d}✤ ‧ —– • Blinkies [warning!] • —– ٠ ✤ }}$</summary> 
 <img src="https://i.ibb.co/GQQptSTX/games-undertale11.gif" alt="games-undertale11" border="0">
 <img src="https://i.ibb.co/vvK8pTgB/shows-adultswim.gif" alt="shows-adultswim" border="0">
+<img src="https://i.ibb.co/SDq5YcQC/mcr.gif" alt="mcr" border="0">
+<img src="https://i.ibb.co/0Vtxyq54/ao3-3.gif" alt="ao3-3" border="0">
+<img src="https://i.ibb.co/Kp0gJL23/proship.gif" alt="proship" border="0">
+<img src="https://i.ibb.co/RkFKpVd4/proship-sals.gif" alt="proship-sals" border="0">
+<img src="https://i.ibb.co/4RPww10R/black.gif" alt="black" border="0">
+<img src="https://i.ibb.co/wFY1hWpz/eggplant.gif" alt="eggplant" border="0">
+<img src="https://i.ibb.co/21qs279m/animals-whitneychewston.gif" alt="animals-whitneychewston" border="0">
+<img src="https://i.ibb.co/pvGhR2w0/food-coke4.gif" alt="food-coke4" border="0">
+<img src="https://i.ibb.co/DjYBrJ9/food-coke3.gif" alt="food-coke3" border="0">
+<img src="https://i.ibb.co/8DBbd2JV/food-dietcoke.gif" alt="food-dietcoke" border="0">
+<img src="https://i.ibb.co/tPPtQbPH/food-coke2.gif" alt="food-coke2" border="0">
+<img src="https://i.ibb.co/twRrxr1D/food-coke.gif" alt="food-coke" border="0">
+<img src="https://i.ibb.co/MD91myVV/food-mtndew2.gif" alt="food-mtndew2" border="0">
+<img src="https://i.ibb.co/MD91myVV/food-mtndew2.gif" alt="food-mtndew2" border="0">
+<img src="https://i.ibb.co/qMnZv612/food-mtndew3.gif" alt="food-mtndew3" border="0">
+<img src="https://i.ibb.co/v8DcKWL/food-mtndew.gif" alt="food-mtndew" border="0">
+<img src="https://i.ibb.co/v8DcKWL/food-mtndew.gif" alt="food-mtndew" border="0">
+<img src="https://i.ibb.co/d031wvQk/food-water.gif" alt="food-water" border="0">
+<img src="https://i.ibb.co/nN8xMm7C/food-coffee.gif" alt="food-coffee" border="0">
+<img src="https://i.ibb.co/7dqQRDk6/food-coffee2.gif" alt="food-coffee2" border="0">
+<img src="https://i.ibb.co/8grXGG12/food-chocolate.gif" alt="food-chocolate" border="0">
+<img src="https://i.ibb.co/q3tp7mmf/food-tacobell.gif" alt="food-tacobell" border="0">
+<img src="https://i.ibb.co/Fk4kVsvV/food-wafflehouse.gif" alt="food-wafflehouse" border="0">
+<img src="https://i.ibb.co/RpxRcC4t/games-gameover.gif" alt="games-gameover" border="0">
+<img src="https://i.ibb.co/8nch4Qzf/games-undertale5.gif" alt="games-undertale5" border="0">
+<img src="https://i.ibb.co/8nch4Qzf/games-undertale5.gif" alt="games-undertale5" border="0">
+<img src="https://i.ibb.co/Hf6CbJTH/games-undertale10.gif" alt="games-undertale10" border="0">
+<img src="https://i.ibb.co/spQbX9mP/games-minecraft4.gif" alt="games-minecraft4" border="0">
+<img src="https://i.ibb.co/23RfpFmS/games-fnaf15.gif" alt="games-fnaf15" border="0">
+<img src="https://i.ibb.co/RkwwXh8Y/games-fnaf7.gif" alt="games-fnaf7" border="0">
+<img src="https://i.ibb.co/Kj855Cxn/games-fnaf5.gif" alt="games-fnaf5" border="0">
+<img src="https://i.ibb.co/Z1gPTZGL/games-fnaf2.gif" alt="games-fnaf2" border="0">
+<img src="https://i.ibb.co/RTvDT7XS/games-fnaf14.gif" alt="games-fnaf14" border="0">
+<img src="https://i.ibb.co/C50gyMGN/games-fnaf3.gif" alt="games-fnaf3" border="0">
+<img src="https://i.ibb.co/HfmVwjqb/games-fnaf8.gif" alt="games-fnaf8" border="0">
+<img src="https://i.ibb.co/QjNhxMmQ/games-fnaf6.png" alt="games-fnaf6" border="0">
+<img src="https://i.ibb.co/qF2c5XLp/portal.gif" alt="portal" border="0">
+<img src="https://i.ibb.co/s9vgR0Fv/games-portal3.gif" alt="games-portal3" border="0">
+<img src="https://i.ibb.co/svp4r0Fm/games-portal6.gif" alt="games-portal6" border="0">
+<img src="https://i.ibb.co/mVXq2pdk/games-portal5.gif" alt="games-portal5" border="0">
+<img src="https://i.ibb.co/KpsXKqmS/games-portal7.gif" alt="games-portal7" border="0">
+<img src="https://i.ibb.co/0j6SVFfn/games-portal4.gif" alt="games-portal4" border="0">
+<img src="https://i.ibb.co/pvkpvSjm/games-portal8.gif" alt="games-portal8" border="0">
+<img src="https://i.ibb.co/d0pW9YKB/games-portal.gif" alt="games-portal" border="0">
+<img src="https://i.ibb.co/KTPNZPr/games-portal2.gif" alt="games-portal2" border="0">
+<img src="https://i.ibb.co/LDrd32w5/games-portal9.gif" alt="games-portal9" border="0">
+<img src="https://i.ibb.co/F4rjTNRH/games-portal12.gif" alt="games-portal12" border="0">
+<img src="https://i.ibb.co/679P1GpZ/games-portal11.gif" alt="games-portal11" border="0">
+<img src="https://i.ibb.co/d0Z1BS39/games-pkm2.gif" alt="games-pkm2" border="0">
+<img src="https://i.ibb.co/wF2vVZbQ/games-pkmfire.gif" alt="games-pkmfire" border="0">
+<img src="https://i.ibb.co/4nFxZQkK/games-pkmground.gif" alt="games-pkmground" border="0">
+<img src="https://i.ibb.co/TM1HHGnb/games-pkmfighting.gif" alt="games-pkmfighting" border="0">
+<img src="https://i.ibb.co/Mx32MrSd/games-pkmelectric.gif" alt="games-pkmelectric" border="0">
+<img src="https://i.ibb.co/7N0ddqDP/games-pkmbug.gif" alt="games-pkmbug" border="0">
+<img src="https://i.ibb.co/dsZ4rQxx/games-pkmgrass.gif" alt="games-pkmgrass" border="0">
+<img src="https://i.ibb.co/gMcpmT5S/games-pkmice.gif" alt="games-pkmice" border="0">
+<img src="https://i.ibb.co/F1tgd6d/games-pkmwater.gif" alt="games-pkmwater" border="0">
+<img src="https://i.ibb.co/G4bp6Nnn/games-pkmflying.gif" alt="games-pkmflying" border="0">
+<img src="https://i.ibb.co/8LY8fBcQ/games-pkmdragon.gif" alt="games-pkmdragon" border="0">
+<img src="https://i.ibb.co/LXZZspCy/games-pkmghost.gif" alt="games-pkmghost" border="0">
+<img src="https://i.ibb.co/dwcPQJ9s/games-pkmpoison.gif" alt="games-pkmpoison" border="0">
+<img src="https://i.ibb.co/chrBzYsb/games-pkmdark.gif" alt="games-pkmdark" border="0">
+<img src="https://i.ibb.co/HfkJ6dfk/games-pkmpsychic.gif" alt="games-pkmpsychic" border="0">
+<img src="https://i.ibb.co/JWTNBMgR/games-pkmfairy.gif" alt="games-pkmfairy" border="0">
+
+
+
+
+</details>
