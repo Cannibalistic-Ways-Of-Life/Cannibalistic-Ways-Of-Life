@@ -7,7 +7,9 @@
 > 
 > " Call us ${\textsf{\color{#667422}Vemödalen}}$ or ${\textsf{\color{#dc1717}Vemö}}$ <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/c29e6b38-e0de-40a3-b634-99506c0f017a" />
 >
->   " ${\textsf{\color{#be62b8}spiderpunk}}$ |`pokemon(mimikyu my baby :3)` | *life is strange* | `undertale`  ${\textsf{\color{#93dbe6}sally face}}$ **Sal x Larry** ***<3***  <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/db07c38e-ef5d-4535-afa1-a98f6091c37e" /> 
+>   " ${\textsf{\color{#be62b8}spiderpunk}}$ |`pokemon(mimikyu my baby :3)` | *life is strange* | `undertale`  ${\textsf{\color{#93dbe6}sally face}}$ **Sal x Larry** ***<3***  <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/db07c38e-ef5d-4535-afa1-a98f6091c37e" /> <ins>
+>
+> *Im a major Sal fisher kin Hes litteraly me. I tend to get a litte pissed off when people say they relate to him to be warned*
 > 
 > 
 >   **:coffin: ►** **ꉂ(˵˃ ᗜ ˂˵)** `Gender: Nonbinary [They/Them]` 
