@@ -29,7 +29,8 @@
 >
 > **<img src="https://i.ibb.co/k2grTNRL/jumble.gif" alt="jumble" border="0"> ►** **(╥﹏╥)** **`BPD/NPD/HPD/ADHD`** | *`Dyslexia/Autism/Schizophrenia`* | **`Periodic paralasys/Short-Term Memoryloss`**  
 >
-> **<a href="https://ibb.co/6Rs7L7bB"><img src="https://i.ibb.co/Fb7LCLJV/computer.gif" alt="computer" border="0"></a>  ►** To learn more about ${\textsf{\color{#febf6d}us}}$ **!** :3  ( ≖‿  ≖ ) ***Heehee*** [*Our carrd!*](https://deadpoetssocietyexe.carrd.co/)   **////**   [***Important info on proship***](https://proshipresourcesfnaf.carrd.co/#)
+> **<a href="https://ibb.co/6Rs7L7bB"><img src="https://i.ibb.co/Fb7LCLJV/computer.gif" alt="computer" border="0"></a>  ►** To learn more about ${\textsf{\color{#febf6d}us}}$ **!** :3  ( ≖‿  ≖ ) ***Heehee*** [*Our carrd!*](https://deadpoetssocietyexe.carrd.co/)   **////**
+> [**Proship Info1**](https://proshipresourcesfnaf.carrd.co/#) **//** [**Proship Info2**](https://rentry.co/shipmeaning) **//** [**Proship Info3**](https://define-proship.carrd.co/)
 > 
 > <img width="300" height="250" alt="image" src="https://github.com/user-attachments/assets/60e3a689-59fc-42c8-98f5-35f698638037" />
 >
