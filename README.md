@@ -18,17 +18,23 @@
 > 
 > **:black_heart: ►** **𖡼.𖤣𖥧𖡼.𖤣𖥧** `Traumagenic system of 200+ alters!! 18+!`
 >
-> **🧠 ►** **(╥﹏╥)** **`BPD/NPD/HPD/ADHD`** | *`Dyslexia/Autism/Schizophrenia`* | **`Periodic paralasys/Short-Term Memoryloss`**
+> **🧠 ►** **(╥﹏╥)** **`BPD/NPD/HPD/ADHD`** | *`Dyslexia/Autism/Schizophrenia`* | **`Periodic paralasys/Short-Term Memoryloss`**  
 >
 > **:mushroom:  ►** To learn more about ${\textsf{\color{#febf6d}us}}$ **!** :3  ( ≖‿  ≖ ) ***Heehee*** [*Our carrd!*](https://deadpoetssocietyexe.carrd.co/)   **////**   [***Important info on proship***](https://proshipresourcesfnaf.carrd.co/#)
 >
+> <img src="https://i.ibb.co/BHhmYt6p/68747470733a2f2f66696c65732e636174626f782e6d6f652f6277677531642e676966.gif" alt="68747470733a2f2f66696c65732e636174626f782e6d6f652f6277677531642e676966" border="0"> <img src="https://i.ibb.co/mVjqYBX8/68747470733a2f2f66696c65732e636174626f782e6d6f652f76376c766c302e676966.gif" alt="68747470733a2f2f66696c65732e636174626f782e6d6f652f76376c766c302e676966" border="0"> <img src="https://i.ibb.co/8LTQQGYB/68747470733a2f2f66696c65732e636174626f782e6d6f652f6a7a306537732e676966.gif" alt="68747470733a2f2f66696c65732e636174626f782e6d6f652f6a7a306537732e676966" border="0">
+> 
 > <img width="300" height="250" alt="image" src="https://github.com/user-attachments/assets/60e3a689-59fc-42c8-98f5-35f698638037" />
 >
 > **▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄**
 
-<img width="120" height="150" alt="image" src="https://github.com/user-attachments/assets/3054d87e-4b05-442f-9c6c-5f87d6be5421" /> <img width="120" height="150" alt="image" src="https://github.com/user-attachments/assets/8d3891cc-91c4-4d33-9dd9-f205173a9a2a" /> <img width="130" height="160" alt="image" src="https://github.com/user-attachments/assets/43a64bc9-c3a1-4b60-b747-d01e52a4e7d9" /> <img width="150" height="180" alt="image" src="https://github.com/user-attachments/assets/7056376a-af64-473d-ab7c-1e35fd780064" /> <img width="135" height="165" alt="image" src="https://github.com/user-attachments/assets/64cbb2ab-ca2b-4e4b-879f-7f945a60124a" /> <a href="https://ibb.co/9H50DPSM"> 
+> <img width="120" height="150" alt="image" src="https://github.com/user-attachments/assets/3054d87e-4b05-442f-9c6c-5f87d6be5421" /> <img width="120" height="150" alt="image" src="https://github.com/user-attachments/assets/8d3891cc-91c4-4d33-9dd9-f205173a9a2a" /> <img width="130" height="160" alt="image" src="https://github.com/user-attachments/assets/43a64bc9-c3a1-4b60-b747-d01e52a4e7d9" /> <img width="150" height="180" alt="image" src="https://github.com/user-attachments/assets/7056376a-af64-473d-ab7c-1e35fd780064" /> <img width="135" height="165" alt="image" src="https://github.com/user-attachments/assets/64cbb2ab-ca2b-4e4b-879f-7f945a60124a" /> <a href="https://ibb.co/9H50DPSM"> 
 
 > **◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤**
+
+<div align="left">
+<details>
+    <summary>${\textsf{\color{#be62b8}✤ ‧ —– • Flags • —– ٠ ✤ }}$</summary> 
 
 <img width="100" height="150" alt="image" src="https://github.com/user-attachments/assets/8799d494-0ded-4342-8ec5-acac415eccb1" />
 <img width="100" height="150" alt="image" src="https://github.com/user-attachments/assets/57e2f57a-9532-4dbd-a578-c2dec3a3d13e" /> 
@@ -57,3 +63,44 @@
 **(๑'^'๑)︻デ═一** <sub>**7.** `Autonecrophilia is attraction to oneself as a` ~~`dead`~~ `body`<sub>
 
 **( ˶°ㅁ°)** <sub>**8.** `Erotophonophilia is an attraction towards` ~~`murder`~~ `and` ~~`violence`~~ <sub>
+</details>
+
+<div align="left">
+<details>
+    <summary>${\textsf{\color{#febf6d}✤ ‧ —– • Stamps [TW AHEAD!!!] • —– ٠ ✤ }}$</summary> 
+ <img src="https://i.ibb.co/QF2X1KMT/games-minecraft.png" alt="games-minecraft" border="0">
+ <img src="https://i.ibb.co/MxGqxWGX/games-undertale2.gif" alt="games-undertale2" border="0"> 
+ <img src="https://i.ibb.co/PswxJ3JH/bands-greenday.gif" alt="bands-greenday" border="0"> 
+ <img src="https://i.ibb.co/kgW273WF/bands-greenday21.gif" alt="bands-greenday21" border="0"> 
+ <img src="https://i.ibb.co/WWCmKXz5/bands-greenday18.gif" alt="bands-greenday18" border="0">
+ <img src="https://i.ibb.co/nq8JBVr3/bands-gorillaz3.png" alt="bands-gorillaz3" border="0">
+ <img src="https://i.ibb.co/B20wsnqG/bands-rickastley.gif" alt="bands-rickastley" border="0">
+ <img src="https://i.ibb.co/ZtBTZs9/eyes.gif" alt="eyes" border="0">
+ <img src="https://i.ibb.co/5q89rZ9/yaoi3.png" alt="yaoi3" border="0">
+ <img src="https://i.ibb.co/spNy0r4D/yaoi7.png" alt="yaoi7" border="0">
+ <img src="https://i.ibb.co/cXc36TdS/horror-blood10.png" alt="horror-blood10" border="0">
+ <img src="https://i.ibb.co/5XBVSbPJ/webcore18.png" alt="webcore18" border="0">
+ <img src="https://i.ibb.co/4ZkCW1zj/horror-gore.gif" alt="horror-gore" border="0">
+ <img src="https://i.ibb.co/6cHsK4Nj/emo18.png" alt="emo18" border="0">
+ <img src="https://i.ibb.co/DDL5DFx5/yt-danisnotonfire2.gif" alt="yt-danisnotonfire2" border="0">
+ <img src="https://i.ibb.co/d0DdrG1S/webcore9.gif" alt="webcore9" border="0"> 
+ <img src="https://i.ibb.co/TqPrS0HZ/vibe.png" alt="vibe" border="0">
+ <img src="https://i.ibb.co/3mFVx0G9/shaky.gif" alt="shaky" border="0">
+ <img src="https://i.ibb.co/qF10Pmh2/horror-knife2.png" alt="horror-knife2" border="0">
+ <img src="https://i.ibb.co/0jLRk83R/image.png" alt="image" border="0">
+ <img src="https://i.ibb.co/ZpN1SzLg/darkfic.gif" alt="darkfic" border="0">
+ <img src="https://i.ibb.co/MyZjDx9y/cults4.png" alt="cults4" border="0">
+ <img src="https://i.ibb.co/h1Rh2vGY/swirl.gif" alt="swirl" border="0">
+ <img src="https://i.ibb.co/pB2YKGMf/clowns7.png" alt="clowns7" border="0">
+ <img src="https://i.ibb.co/2TgGXp9/horror-vampire.png" alt="horror-vampire" border="0">
+ <img src="https://i.ibb.co/ZzvxmPWt/whistle.png" alt="whistle" border="0">
+ <img src="https://i.ibb.co/PZ381XH3/yt-markiplier2.png" alt="yt-markiplier2" border="0">
+ <img src="https://i.ibb.co/C575fX1p/yt-markiplier4.png" alt="yt-markiplier4" border="0">
+ <img src="https://i.ibb.co/hF6jzHzG/yt-markiplier.gif" alt="yt-markiplier" border="0">
+</details>
+
+<div align="left">
+<details>
+    <summary>${\textsf{\color{#febf6d}✤ ‧ —– • Blinkies [TW AHEAD!!!] • —– ٠ ✤ }}$</summary> 
+<img src="https://i.ibb.co/GQQptSTX/games-undertale11.gif" alt="games-undertale11" border="0">
+<img src="https://i.ibb.co/vvK8pTgB/shows-adultswim.gif" alt="shows-adultswim" border="0">
