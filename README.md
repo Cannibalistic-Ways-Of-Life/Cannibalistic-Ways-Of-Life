@@ -3,6 +3,11 @@
 ### **Haiiiii we're the** ${\textsf{\color{#dc1717}Dead Poets Society}}$ 
 </h2> 
 
+<details>
+    <summary>${\textsf{\color{#febf6d} Click for site warnings BEFORE reading!! }}$</summary> 
+      my site(s) are not sutiabe for those 14 and under, they contain mentions/images of ;; violence, murder, and gore.
+    </details>
+
 **(˵ •̀ ᴗ - ˵ )** ─────────»»
 > 
 > " Call us ${\textsf{\color{#667422}Vemödalen}}$ or ${\textsf{\color{#dc1717}Vemö}}$ <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/c29e6b38-e0de-40a3-b634-99506c0f017a" />
