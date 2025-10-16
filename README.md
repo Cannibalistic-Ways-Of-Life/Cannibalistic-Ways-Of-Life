@@ -34,26 +34,27 @@
 > <img width="300" height="250" alt="image" src="https://github.com/user-attachments/assets/60e3a689-59fc-42c8-98f5-35f698638037" />
 >
 > **▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄**
+>
+> <img width="130" height="150" alt="image" src="https://github.com/user-attachments/assets/b7632262-7e46-4b7f-8424-5054fb0885ba" /> <img width="120" height="150" alt="image" src="https://github.com/user-attachments/assets/8d3891cc-91c4-4d33-9dd9-f205173a9a2a" /> <img width="130" height="160" alt="image" src="https://github.com/user-attachments/assets/43a64bc9-c3a1-4b60-b747-d01e52a4e7d9" /> <img width="150" height="180" alt="image" src="https://github.com/user-attachments/assets/7056376a-af64-473d-ab7c-1e35fd780064" /> <img width="135" height="165" alt="image" src="https://github.com/user-attachments/assets/64cbb2ab-ca2b-4e4b-879f-7f945a60124a" /> <a href="https://ibb.co/9H50DPSM"> <img width="140" height="165" alt="image" src="https://github.com/user-attachments/assets/40e5b39c-035b-4d3f-a0db-b7389cb7e93c" />
 
-> <img width="120" height="150" alt="image" src="https://github.com/user-attachments/assets/3054d87e-4b05-442f-9c6c-5f87d6be5421" /> <img width="120" height="150" alt="image" src="https://github.com/user-attachments/assets/8d3891cc-91c4-4d33-9dd9-f205173a9a2a" /> <img width="130" height="160" alt="image" src="https://github.com/user-attachments/assets/43a64bc9-c3a1-4b60-b747-d01e52a4e7d9" /> <img width="150" height="180" alt="image" src="https://github.com/user-attachments/assets/7056376a-af64-473d-ab7c-1e35fd780064" /> <img width="135" height="165" alt="image" src="https://github.com/user-attachments/assets/64cbb2ab-ca2b-4e4b-879f-7f945a60124a" /> <a href="https://ibb.co/9H50DPSM"> 
-
-> **◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤**
+>
+> **◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤**
 
 <div align="left">
 <details>
     <summary>${\textsf{\color{#ffce8e}✤ ‧ —– • Flags • —– ٠ ✤ }}$</summary> 
 
 <img width="100" height="150" alt="image" src="https://github.com/user-attachments/assets/8799d494-0ded-4342-8ec5-acac415eccb1" />
-<img width="100" height="150" alt="image" src="https://github.com/user-attachments/assets/57e2f57a-9532-4dbd-a578-c2dec3a3d13e" /> 
+<img width="95" height="135" alt="image" src="https://github.com/user-attachments/assets/57e2f57a-9532-4dbd-a578-c2dec3a3d13e" /> 
  
 <img width="100" height="150" alt="image" src="https://github.com/user-attachments/assets/ce0e22e3-1a73-4444-9ca6-c0a59a7b5fc9" />  
 <img width="100" height="150" alt="image" src="https://github.com/user-attachments/assets/743b3151-4ce9-46f9-b77d-b7069534770c" /> 
  
-<img width="100" height="150" alt="image" src="https://github.com/user-attachments/assets/a8582c3c-896d-467e-8de1-4386aa538ac3" /> 
-<img width="120" height="100" alt="image" src="https://github.com/user-attachments/assets/3c0fbc7c-3a8c-4944-8e6b-9a9f81ae8656" />
+<img width="90" height="150" alt="image" src="https://github.com/user-attachments/assets/a8582c3c-896d-467e-8de1-4386aa538ac3" /> 
+<img width="115" height="150" alt="image" src="https://github.com/user-attachments/assets/3c0fbc7c-3a8c-4944-8e6b-9a9f81ae8656" />
 
-<img width="100" height="70" alt="image" src="https://github.com/user-attachments/assets/5f9e5d4d-8e2f-4a58-87ae-d6e8af522799" />
-<img width="100" height="150" alt="image" src="https://github.com/user-attachments/assets/8908fe79-ed00-4a7d-8395-66d571443279" />
+<img width="100" height="150" alt="image" src="https://github.com/user-attachments/assets/5f9e5d4d-8e2f-4a58-87ae-d6e8af522799" />
+<img width="95" height="150" alt="image" src="https://github.com/user-attachments/assets/8908fe79-ed00-4a7d-8395-66d571443279" />
 
 **₍₍⚞(˶˃ ꒳ ˂˶)⚟⁾⁾** <sub>**1.** `Fictophilia is an attraction to fictional beings.`<sub>
 
