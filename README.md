@@ -68,23 +68,23 @@
 <img width="100" height="150" alt="image" src="https://github.com/user-attachments/assets/fad440f0-0c39-40bc-b773-2df7f207f2c6" />
 
 
-**₍₍⚞(˶˃ ꒳ ˂˶)⚟⁾⁾** <sub>**1.** `Fictophilia is an attraction to fictional beings.`<sub>
+**₍₍⚞(˶˃ ꒳ ˂˶)⚟⁾⁾** <sub>**1.** `Fictophilia is an attraction to fictional beings.`<sub> <a href="https://ibb.co/cSNrVPN7"><img src="https://i.ibb.co/jPLrsdL1/computer3.gif" alt="computer3" border="0"></a>
 
-**( ´･ω･)** <sub>**2.** `Anthrozoophilia an attraction to anthropomorphic animals, which falls under the furry spectrum`<sub>
+**( ´･ω･)** <sub>**2.** `Anthrozoophilia an attraction to anthropomorphic animals, which falls under the furry spectrum`<sub> <a href="https://ibb.co/FqNg3J23"><img src="https://i.ibb.co/Tqpm2R62/tumblr-0e6b2b268d121728c665ada16db44d68-c3211345-75.webp" alt="tumblr-0e6b2b268d121728c665ada16db44d68-c3211345-75" border="0"></a>
 
-**٩( ^ᗜ^) ´-** <sub>**3.** `Omniphilia refers to having all or many paraphilias`<sub>
+**٩( ^ᗜ^) ´-** <sub>**3.** `Omniphilia refers to having all or many paraphilias`<sub> <a href="https://ibb.co/MQwf5Bh"><img src="https://i.ibb.co/wjG7rcL/tumblr-e68f767694e002975b449eecd385ac52-32d869ef-75.webp" alt="tumblr-e68f767694e002975b449eecd385ac52-32d869ef-75" border="0"></a>
 
-**(๑ ˃̵ᴗ˂ ) ♡** <sub>**4.** `Teratophilia is an attraction to monsters` <sub> 
+**(๑ ˃̵ᴗ˂ ) ♡** <sub>**4.** `Teratophilia is an attraction to monsters` <a href="https://ibb.co/ns2PZHgL"><img src="https://i.ibb.co/BVDndXzC/tumblr-570a99c8e5bb00972f8fc8555947ec50-c3cf09e0-75.webp" alt="tumblr-570a99c8e5bb00972f8fc8555947ec50-c3cf09e0-75" border="0"></a>
 
-**✾(〜 ☌ω☌)〜✾** <sub>**5.** `Upisexual is an attraction to vampires`<sub>
+**✾(〜 ☌ω☌)〜✾** <sub>**5.** `Upisexual is an attraction to vampires`<sub> <a href="https://ibb.co/dnw0wjZ"><img src="https://i.ibb.co/FGLbLmp/cross7.gif" alt="cross7" border="0"></a>
 
-**(≧ω≦)/** <sub>**6.** ~~`Cannibal`~~ `Flag for people attracted to` ~~`eating people/partners`~~ <sub>
+**(≧ω≦)/** <sub>**6.** ~~`Cannibal`~~ `Flag for people attracted to` ~~`eating people/partners`~~ <sub> <img src="https://i.ibb.co/bjxdQL82/tumblr-6183edbd22a281c63b60f816feaee9a1-643a73f1-75.webp" alt="tumblr-6183edbd22a281c63b60f816feaee9a1-643a73f1-75" border="0">
 
-**(๑'^'๑)︻デ═一** <sub>**7.** `Autonecrophilia is attraction to oneself as a` ~~`dead`~~ `body`<sub>
+**(๑'^'๑)︻デ═一** <sub>**7.** `Autonecrophilia is attraction to oneself as a` ~~`dead`~~ `body`<sub> <img src="https://i.ibb.co/vvzvLDQQ/tumblr-0d13c3195e9d46a9e99bf21069cde6e1-3e0b9830-75.webp" alt="tumblr-0d13c3195e9d46a9e99bf21069cde6e1-3e0b9830-75" border="0">
 
-**( ˶°ㅁ°)** <sub>**8.** `Erotophonophilia is an attraction towards` ~~`murder`~~ `and` ~~`violence`~~ <sub>
+**( ˶°ㅁ°)** <sub>**8.** `Erotophonophilia is an attraction towards` ~~`murder`~~ `and` ~~`violence`~~ <sub> <img src="https://i.ibb.co/yBkMR0Mc/tumblr-8ad1a7143f169e6800bf6a2a7d8cde16-cc0c28b7-75.webp" alt="tumblr-8ad1a7143f169e6800bf6a2a7d8cde16-cc0c28b7-75" border="0">
 
-**◝(¬_¬")◜** <sub>**9.** `Hybristophilia is attraction to` `criminals` ~~`murderers`~~ <sub>
+**◝(¬_¬")◜** <sub>**9.** `Hybristophilia is attraction to` `criminals` ~~`murderers`~~ <sub> <img src="https://i.ibb.co/9k3X4B7h/tumblr-2315b3a21341194420da384396b66272-7da6b2fc-75.webp" alt="tumblr-2315b3a21341194420da384396b66272-7da6b2fc-75" border="0">
 </details>
 
 <div align="left">
@@ -339,9 +339,7 @@
 <img src="https://i.ibb.co/hRZ5cH1q/rat.gif" alt="rat" border="0">
 
 
-
 > <img src="https://i.ibb.co/NdBbSx0T/scene2.gif" alt="scene2" border="0">
-
 
 
 <img src="https://i.ibb.co/ynvwz9H2/blood6.png" alt="blood6" border="0">
