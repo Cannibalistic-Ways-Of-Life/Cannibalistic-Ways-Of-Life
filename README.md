@@ -78,13 +78,13 @@
 
 **✾(〜 ☌ω☌)〜✾** <sub>**5.** `Upisexual is an attraction to vampires`<sub> <a href="https://ibb.co/dnw0wjZ"><img src="https://i.ibb.co/FGLbLmp/cross7.gif" alt="cross7" border="0"></a>
 
-**(≧ω≦)/** <sub>**6.** ~~`Cannibal`~~ `Flag for people attracted to` ~~`eating people/partners`~~ <sub> <img src="https://i.ibb.co/bjxdQL82/tumblr-6183edbd22a281c63b60f816feaee9a1-643a73f1-75.webp" alt="tumblr-6183edbd22a281c63b60f816feaee9a1-643a73f1-75" border="0">
+**(≧ω≦)/** <sub>**6.** ~~`Cannibal`~~ `Flag for people attracted to` ~~`eating people/partners`~~ <sub> <a href="https://ibb.co/kVpc50W9"><img src="https://i.ibb.co/bjxdQL82/tumblr-6183edbd22a281c63b60f816feaee9a1-643a73f1-75.webp" alt="tumblr-6183edbd22a281c63b60f816feaee9a1-643a73f1-75" border="0"></a>
 
-**(๑'^'๑)︻デ═一** <sub>**7.** `Autonecrophilia is attraction to oneself as a` ~~`dead`~~ `body`<sub> <img src="https://i.ibb.co/vvzvLDQQ/tumblr-0d13c3195e9d46a9e99bf21069cde6e1-3e0b9830-75.webp" alt="tumblr-0d13c3195e9d46a9e99bf21069cde6e1-3e0b9830-75" border="0">
+**(๑'^'๑)︻デ═一** <sub>**7.** `Autonecrophilia is attraction to oneself as a` ~~`dead`~~ `body`<sub> <a href="https://ibb.co/0VJVYQFF"><img src="https://i.ibb.co/vvzvLDQQ/tumblr-0d13c3195e9d46a9e99bf21069cde6e1-3e0b9830-75.webp" alt="tumblr-0d13c3195e9d46a9e99bf21069cde6e1-3e0b9830-75" border="0"></a>
 
-**( ˶°ㅁ°)** <sub>**8.** `Erotophonophilia is an attraction towards` ~~`murder`~~ `and` ~~`violence`~~ <sub> <img src="https://i.ibb.co/yBkMR0Mc/tumblr-8ad1a7143f169e6800bf6a2a7d8cde16-cc0c28b7-75.webp" alt="tumblr-8ad1a7143f169e6800bf6a2a7d8cde16-cc0c28b7-75" border="0">
+**( ˶°ㅁ°)** <sub>**8.** `Erotophonophilia is an attraction towards` ~~`murder`~~ `and` ~~`violence`~~ <sub> <a href="https://ibb.co/Z1gwJdwp"><img src="https://i.ibb.co/yBkMR0Mc/tumblr-8ad1a7143f169e6800bf6a2a7d8cde16-cc0c28b7-75.webp" alt="tumblr-8ad1a7143f169e6800bf6a2a7d8cde16-cc0c28b7-75" border="0"></a>
 
-**◝(¬_¬")◜** <sub>**9.** `Hybristophilia is attraction to` `criminals` ~~`murderers`~~ <sub> <img src="https://i.ibb.co/9k3X4B7h/tumblr-2315b3a21341194420da384396b66272-7da6b2fc-75.webp" alt="tumblr-2315b3a21341194420da384396b66272-7da6b2fc-75" border="0">
+**◝(¬_¬")◜** <sub>**9.** `Hybristophilia is attraction to` `criminals` ~~`murderers`~~ <sub> <a href="https://ibb.co/21Y2MRTS"><img src="https://i.ibb.co/9k3X4B7h/tumblr-2315b3a21341194420da384396b66272-7da6b2fc-75.webp" alt="tumblr-2315b3a21341194420da384396b66272-7da6b2fc-75" border="0"></a>
 </details>
 
 <div align="left">
