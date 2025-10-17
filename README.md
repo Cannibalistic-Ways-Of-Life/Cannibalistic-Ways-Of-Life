@@ -302,6 +302,51 @@
 ▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱
 </details>
 
+
+<div align="left">
+<details>
+    <summary>${\textsf{\color{#de0000}✤ ‧ —– • COWBOY BEPOP!!! • —– ٠ ✤ }}$</summary> 
+
+▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱
+
+<a href="https://ibb.co/NdJrkd4W"><img src="https://i.ibb.co/bMCFyMfN/tumblr-afac0871d72ca9a0d47201c218e4f3e9-ef2881d4-250.webp" alt="tumblr-afac0871d72ca9a0d47201c218e4f3e9-ef2881d4-250" border="0"></a>
+<a href="https://ibb.co/tpH2rWCX"><img src="https://i.ibb.co/yFNkjbsS/tumblr-517879944bf7a3c11affc350af112b33-db4a49a2-250.webp" alt="tumblr-517879944bf7a3c11affc350af112b33-db4a49a2-250" border="0"></a>
+ <a href="https://ibb.co/rGFLBpRh"><img src="https://i.ibb.co/mCbYnyVK/tumblr-eb52d7e184b4fe39b2acfff2b22e551c-f6adef39-250.webp" alt="tumblr-eb52d7e184b4fe39b2acfff2b22e551c-f6adef39-250" border="0"></a>
+<a href="https://ibb.co/LXRMBJnb"><img src="https://i.ibb.co/fzFbZn4B/tumblr-2d3123d7ef1c1b1c166250c997ef7dfb-da575c35-100.webp" alt="tumblr-2d3123d7ef1c1b1c166250c997ef7dfb-da575c35-100" border="0"></a>
+<a href="https://ibb.co/DPtQRg61"><img src="https://i.ibb.co/0pcrGVWn/tumblr-fe5012a2c24d58c98d7b39c0411806f7-7d87f3cc-75.webp" alt="tumblr-fe5012a2c24d58c98d7b39c0411806f7-7d87f3cc-75" border="0"></a>
+
+<a href="https://ibb.co/ZpbYMcj8"><img src="https://i.ibb.co/G4rt5C62/tumblr-e243fbc6285c2370030b179c14ddbd48-214b0694-75.jpg" alt="tumblr-e243fbc6285c2370030b179c14ddbd48-214b0694-75" border="0"></a>
+<a href="https://ibb.co/ptdvj4w"><img src="https://i.ibb.co/fhHYdrF/tumblr-373a60b8479c3ca0a220801bda815ea9-d4e21e6a-75.jpg" alt="tumblr-373a60b8479c3ca0a220801bda815ea9-d4e21e6a-75" border="0"></a>
+<a href="https://ibb.co/HDWcCQ9j"><img src="https://i.ibb.co/BVXhGRY9/tumblr-838d269b5c9a8d888dd919feacef18a4-66126cc9-75.jpg" alt="tumblr-838d269b5c9a8d888dd919feacef18a4-66126cc9-75" border="0"></a>
+<a href="https://ibb.co/v6T015CX"><img src="https://i.ibb.co/rRzDkPKd/tumblr-45a81c5c0a9deb78d158528dbb1446db-e486a050-75.jpg" alt="tumblr-45a81c5c0a9deb78d158528dbb1446db-e486a050-75" border="0"></a>
+<a href="https://ibb.co/0VmYGJbd"><img src="https://i.ibb.co/fGqrx0wP/tumblr-7cf60e2eac0d479b9d77e6f26e6c87aa-3565bc35-100.png" alt="tumblr-7cf60e2eac0d479b9d77e6f26e6c87aa-3565bc35-100" border="0"></a>
+<a href="https://ibb.co/xtdNGSxg"><img src="https://i.ibb.co/8LtH2D1x/tumblr-689e2df6b2b8a482483b3a36854ac2e1-4e5cdd5b-100.png" alt="tumblr-689e2df6b2b8a482483b3a36854ac2e1-4e5cdd5b-100" border="0"></a>
+<a href="https://ibb.co/xt5mLgS5"><img src="https://i.ibb.co/0RJB29jJ/tumblr-55d0d3c2e72b833dc7824447c651d43b-16025615-100.png" alt="tumblr-55d0d3c2e72b833dc7824447c651d43b-16025615-100" border="0"></a>
+<a href="https://ibb.co/6Rvb1Zt8"><img src="https://i.ibb.co/3yfWMsFv/tumblr-fc094dc507d9c05b206e17e23ff2e167-f0a05329-100.png" alt="tumblr-fc094dc507d9c05b206e17e23ff2e167-f0a05329-100" border="0"></a>
+<a href="https://ibb.co/yJyJk8g"><img src="https://i.ibb.co/rJ6JpZ5/tumblr-04cff198b05bbd113e53d5be06611dfa-2d0ac75a-100.webp" alt="tumblr-04cff198b05bbd113e53d5be06611dfa-2d0ac75a-100" border="0"></a>
+<a href="https://ibb.co/N6hk9KfF"><img src="https://i.ibb.co/svSDKqcg/tumblr-8a89a33f4ab68334325a377be899e23f-cfa359cd-100.webp" alt="tumblr-8a89a33f4ab68334325a377be899e23f-cfa359cd-100" border="0"></a>
+<a href="https://ibb.co/VWzMz1Rc"><img src="https://i.ibb.co/tMvYvGgT/tumblr-9b032f4f2fca21a36277ab1e2034c5b4-d01783e2-100.webp" alt="tumblr-9b032f4f2fca21a36277ab1e2034c5b4-d01783e2-100" border="0"></a>
+<a href="https://ibb.co/SX9BTHp2"><img src="https://i.ibb.co/Fbjzvct9/tumblr-19d4422467fb3b1186696f48451e7558-502a8346-100.webp" alt="tumblr-19d4422467fb3b1186696f48451e7558-502a8346-100" border="0"></a>
+<a href="https://ibb.co/mrvhSj8p"><img src="https://i.ibb.co/cKb2xBLq/tumblr-b5a227a5346a349f34af78ddef265380-c594df5a-100.webp" alt="tumblr-b5a227a5346a349f34af78ddef265380-c594df5a-100" border="0"></a>
+<a href="https://ibb.co/yF98GdNX"><img src="https://i.ibb.co/hF6KhLgy/tumblr-e17628b40bfe47e95fa3f38e887a7c06-9a976111-100.webp" alt="tumblr-e17628b40bfe47e95fa3f38e887a7c06-9a976111-100" border="0"></a>
+<a href="https://ibb.co/9m7MmPhc"><img src="https://i.ibb.co/WNLTNC0G/tumblr-e7b23573b753e8d134fc3a9c41f58c6b-91b35f5b-100.webp" alt="tumblr-e7b23573b753e8d134fc3a9c41f58c6b-91b35f5b-100" border="0"></a>
+<a href="https://ibb.co/RrgVT3D"><img src="https://i.ibb.co/K453x2r/tumblr-7c928877e95decfe98d76bd374fc3736-35b72afa-100.webp" alt="tumblr-7c928877e95decfe98d76bd374fc3736-35b72afa-100" border="0"></a>
+<a href="https://ibb.co/cXYLJ60C"><img src="https://i.ibb.co/YT0Z2cmy/tumblr-682cf46a6b5833ed6adc702f5597094f-33fa3a55-100.webp" alt="tumblr-682cf46a6b5833ed6adc702f5597094f-33fa3a55-100" border="0"></a>
+<a href="https://ibb.co/bRFK0fsL"><img src="https://i.ibb.co/G3956hWk/tumblr-74074363712901654e8a211b59d1e50b-14cc854d-100.webp" alt="tumblr-74074363712901654e8a211b59d1e50b-14cc854d-100" border="0"></a>
+<a href="https://ibb.co/SDCQctfd"><img src="https://i.ibb.co/My08fcBG/tumblr-f8343f77af875be253466e663d36ae7e-54113b9f-100.webp" alt="tumblr-f8343f77af875be253466e663d36ae7e-54113b9f-100" border="0"></a>
+<a href="https://ibb.co/Q3SKrFdm"><img src="https://i.ibb.co/FLZDgbV7/tumblr-a2afea3414c4e96bcd7e65cd75b5a671-b0d44d22-100.webp" alt="tumblr-a2afea3414c4e96bcd7e65cd75b5a671-b0d44d22-100" border="0"></a>
+<a href="https://ibb.co/6kwVw3Q"><img src="https://i.ibb.co/qvjXjt6/tumblr-5ca82e7a269a7a019c155bc6108eb696-b88f8ddd-100.jpg" alt="tumblr-5ca82e7a269a7a019c155bc6108eb696-b88f8ddd-100" border="0"></a>
+<a href="https://ibb.co/90rcBJ8"><img src="https://i.ibb.co/pTLbNg0/tumblr-f6836f94883a285049cb25803d061b13-816f4743-100.webp" alt="tumblr-f6836f94883a285049cb25803d061b13-816f4743-100" border="0"></a>
+<a href="https://ibb.co/1JsPym47"><img src="https://i.ibb.co/JFxG6sSm/tumblr-0c760201f87e7bd5536bdc5c621d7080-bec983ff-100.webp" alt="tumblr-0c760201f87e7bd5536bdc5c621d7080-bec983ff-100" border="0"></a>
+<a href="https://ibb.co/m3fKmSk"><img src="https://i.ibb.co/zzqg1Np/tumblr-a5c2777b3f7715cd8b4883d344c9e5fc-b8b289b8-100.webp" alt="tumblr-a5c2777b3f7715cd8b4883d344c9e5fc-b8b289b8-100" border="0"></a>
+<a href="https://ibb.co/KxX2gGV8"><img src="https://i.ibb.co/23yvr6cp/tumblr-81ad861af5fd177ca1d9f74037fb52a9-3d0dfab1-100.webp" alt="tumblr-81ad861af5fd177ca1d9f74037fb52a9-3d0dfab1-100" border="0"></a>
+<a href="https://ibb.co/jZj3Kp30"><img src="https://i.ibb.co/Z1bcsZc4/tumblr-575053ade0b1db339378c027ae9e7845-fb3b334b-250.webp" alt="tumblr-575053ade0b1db339378c027ae9e7845-fb3b334b-250" border="0"></a>
+ 
+▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱
+</details>
+
+
+
 <div align="left">
 <details>
     <summary>${\textsf{\color{#d1913d}✤ ‧ —– • Other Shit [MEGA warning!!] • —– ٠ ✤ }}$</summary> 
@@ -364,3 +409,4 @@
 
 ▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱
 </detail>
+
