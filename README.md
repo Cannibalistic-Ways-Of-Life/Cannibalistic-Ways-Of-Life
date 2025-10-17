@@ -8,7 +8,7 @@
  
  My site(s) are **not** sutiabe for those ***`16 and under`***.
  
- They contain mentions/images of ;; ~~*violence*~~ // ~~*`murder`*~~ // ~~*gore*~~ // ~~*`sex`*~~ // ~~*suicidal*~~ *ideologies* and *serious mental health conditions*
+ They contain mentions/images of ;; ~~*violence*~~ // ~~*`murder`*~~ // ~~*gore*~~ // ~~*`sex`*~~ // ~~*drugs*~~ // ~~*`cannibalism`*~~ // ~~*suicidal*~~ *ideologies* and *serious mental health conditions*
 </details>
 
 **(˵ •̀ ᴗ - ˵ )** ─────────»» <img src="https://i.ibb.co/tpTTRVLp/caution-explicit.jpg" alt="caution-explicit" border="4"> <img src="https://i.ibb.co/r2DWkyGJ/teeth.gif" alt="teeth" border="0">
@@ -60,6 +60,9 @@
 <img width="100" height="150" alt="image" src="https://github.com/user-attachments/assets/5f9e5d4d-8e2f-4a58-87ae-d6e8af522799" />
 <img width="95" height="150" alt="image" src="https://github.com/user-attachments/assets/8908fe79-ed00-4a7d-8395-66d571443279" />
 
+<img width="100" height="150" alt="image" src="https://github.com/user-attachments/assets/fad440f0-0c39-40bc-b773-2df7f207f2c6" />
+
+
 **₍₍⚞(˶˃ ꒳ ˂˶)⚟⁾⁾** <sub>**1.** `Fictophilia is an attraction to fictional beings.`<sub>
 
 **( ´･ω･)** <sub>**2.** `Anthrozoophilia an attraction to anthropomorphic animals, which falls under the furry spectrum`<sub>
@@ -75,6 +78,8 @@
 **(๑'^'๑)︻デ═一** <sub>**7.** `Autonecrophilia is attraction to oneself as a` ~~`dead`~~ `body`<sub>
 
 **( ˶°ㅁ°)** <sub>**8.** `Erotophonophilia is an attraction towards` ~~`murder`~~ `and` ~~`violence`~~ <sub>
+
+**◝(¬_¬")◜** <sub>**9.** `Hybristophilia is attraction to` `criminals` ~~`murderers`~~ <sub>
 </details>
 
 <div align="left">
