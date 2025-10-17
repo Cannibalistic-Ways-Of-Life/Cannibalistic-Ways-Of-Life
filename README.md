@@ -3,6 +3,7 @@
 ### **Haiiiii we're the** ${\textsf{\color{#dc1717}Dead Poets Society}}$
 </h2> 
 
+<img src="https://i.ibb.co/nqMPJB7m/hazard-hazard-tape.gif" alt="hazard-hazard-tape" border="0">
 <details>
     <summary>${\textsf{\color{#d16b61}Click to read site warnings BEFORE reading on! }}$</summary> 
  
@@ -10,6 +11,7 @@
  
  They contain mentions/images of ;; ~~*violence*~~ // ~~*`murder`*~~ // ~~*gore*~~ // ~~*`sex`*~~ // ~~*drugs*~~ // ~~*`cannibalism`*~~ // ~~*suicidal*~~ *ideologies* and *serious mental health conditions*
 </details>
+<img src="https://i.ibb.co/nqMPJB7m/hazard-hazard-tape.gif" alt="hazard-hazard-tape" border="0">
 
 **(˵ •̀ ᴗ - ˵ )** ─────────»» <img src="https://i.ibb.co/tpTTRVLp/caution-explicit.jpg" alt="caution-explicit" border="4"> <img src="https://i.ibb.co/r2DWkyGJ/teeth.gif" alt="teeth" border="0">
 > 
@@ -19,7 +21,7 @@
 >
 > *Ima major* ${\textsf{\color{#93dbe6}Sal Fisher}}$ *kin, he's litteraly me. I tend to get a litte pissed off when people say they relate to him. So be warned!!*
 > 
-> 
+> <img src="https://i.ibb.co/39D529VX/weppon-blood.webp" alt="weppon-blood" border="0">
 > 
 >   **<img src="https://i.ibb.co/KpBZZPcy/guitar2.gif" alt="guitar2" border="0"> ►** **ꉂ(˵˃ ᗜ ˂˵)** `Gender: Nonbinary [They/Them]` 
 > 
@@ -37,12 +39,15 @@
 > 
 > <img width="300" height="250" alt="image" src="https://github.com/user-attachments/assets/60e3a689-59fc-42c8-98f5-35f698638037" />
 >
-> **▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄**
 >
+> <img src="https://i.ibb.co/b40Hrfp/divider.gif" alt="divider" border="0"><a href="https://ibb.co/5Q0Y57q"><img src="https://i.ibb.co/b40Hrfp/divider.gif" alt="divider" border="0"></a>
+>
+>
+> 
 > <img width="130" height="150" alt="image" src="https://github.com/user-attachments/assets/b7632262-7e46-4b7f-8424-5054fb0885ba" /> <img width="120" height="150" alt="image" src="https://github.com/user-attachments/assets/8d3891cc-91c4-4d33-9dd9-f205173a9a2a" /> <img width="130" height="160" alt="image" src="https://github.com/user-attachments/assets/43a64bc9-c3a1-4b60-b747-d01e52a4e7d9" /> <img width="150" height="180" alt="image" src="https://github.com/user-attachments/assets/7056376a-af64-473d-ab7c-1e35fd780064" /> <img width="135" height="165" alt="image" src="https://github.com/user-attachments/assets/64cbb2ab-ca2b-4e4b-879f-7f945a60124a" /> <a href="https://ibb.co/9H50DPSM"> <img width="140" height="165" alt="image" src="https://github.com/user-attachments/assets/40e5b39c-035b-4d3f-a0db-b7389cb7e93c" />
-
 >
-> **◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤**
+<a href="https://ibb.co/ynX7LQ8S"><img src="https://i.ibb.co/BVtF8CgN/divider-aesthetic.gif" alt="divider-aesthetic" border="0"></a><a href="https://ibb.co/ynX7LQ8S"><img src="https://i.ibb.co/BVtF8CgN/divider-aesthetic.gif" alt="divider-aesthetic" border="0"></a><a href="https://ibb.co/ynX7LQ8S"><img src="https://i.ibb.co/BVtF8CgN/divider-aesthetic.gif" alt="divider-aesthetic" border="0"></a><a href="https://ibb.co/ynX7LQ8S"><img src="https://i.ibb.co/BVtF8CgN/divider-aesthetic.gif" alt="divider-aesthetic" border="0"></a><a href="https://ibb.co/ynX7LQ8S"><img src="https://i.ibb.co/BVtF8CgN/divider-aesthetic.gif" alt="divider-aesthetic" border="0"></a>
+> **◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤**
 
 <div align="left">
 <details>
@@ -91,14 +96,14 @@
  <img src="https://i.ibb.co/QF2X1KMT/games-minecraft.png" alt="games-minecraft" border="0">
  <img src="https://i.ibb.co/MxGqxWGX/games-undertale2.gif" alt="games-undertale2" border="0"> 
  
- **/////////**
+ **<a href="https://ibb.co/xKLXnbm7"><img src="https://i.ibb.co/vCqVNWsj/dividers.webp" alt="dividers" border="0"></a>**
  
  <img src="https://i.ibb.co/PswxJ3JH/bands-greenday.gif" alt="bands-greenday" border="0"> 
  <img src="https://i.ibb.co/kgW273WF/bands-greenday21.gif" alt="bands-greenday21" border="0"> 
  <img src="https://i.ibb.co/WWCmKXz5/bands-greenday18.gif" alt="bands-greenday18" border="0">
  <img src="https://i.ibb.co/nq8JBVr3/bands-gorillaz3.png" alt="bands-gorillaz3" border="0">
 
-**/////////**
+**<a href="https://ibb.co/xKLXnbm7"><img src="https://i.ibb.co/vCqVNWsj/dividers.webp" alt="dividers" border="0"></a>**
  
  <img src="https://i.ibb.co/ZtBTZs9/eyes.gif" alt="eyes" border="0">
  <img src="https://i.ibb.co/5q89rZ9/yaoi3.png" alt="yaoi3" border="0">
@@ -106,7 +111,7 @@
  <img src="https://i.ibb.co/cXc36TdS/horror-blood10.png" alt="horror-blood10" border="0">
  <img src="https://i.ibb.co/5XBVSbPJ/webcore18.png" alt="webcore18" border="0">
 
-**/////////**
+**<a href="https://ibb.co/xKLXnbm7"><img src="https://i.ibb.co/vCqVNWsj/dividers.webp" alt="dividers" border="0"></a>**
  
  <img src="https://i.ibb.co/4ZkCW1zj/horror-gore.gif" alt="horror-gore" border="0">
  <img src="https://i.ibb.co/6cHsK4Nj/emo18.png" alt="emo18" border="0">
@@ -114,21 +119,21 @@
  <img src="https://i.ibb.co/d0DdrG1S/webcore9.gif" alt="webcore9" border="0"> 
  <img src="https://i.ibb.co/TqPrS0HZ/vibe.png" alt="vibe" border="0">
 
-**/////////**
+**<a href="https://ibb.co/xKLXnbm7"><img src="https://i.ibb.co/vCqVNWsj/dividers.webp" alt="dividers" border="0"></a>**
  
  <img src="https://i.ibb.co/3mFVx0G9/shaky.gif" alt="shaky" border="0">
  <img src="https://i.ibb.co/qF10Pmh2/horror-knife2.png" alt="horror-knife2" border="0">
  <img src="https://i.ibb.co/0jLRk83R/image.png" alt="image" border="0">
  <img src="https://i.ibb.co/ZpN1SzLg/darkfic.gif" alt="darkfic" border="0">
 
-**/////////**
+**<a href="https://ibb.co/xKLXnbm7"><img src="https://i.ibb.co/vCqVNWsj/dividers.webp" alt="dividers" border="0"></a>**
  
  <img src="https://i.ibb.co/MyZjDx9y/cults4.png" alt="cults4" border="0">
  <img src="https://i.ibb.co/h1Rh2vGY/swirl.gif" alt="swirl" border="0">
  <img src="https://i.ibb.co/pB2YKGMf/clowns7.png" alt="clowns7" border="0">
  <img src="https://i.ibb.co/2TgGXp9/horror-vampire.png" alt="horror-vampire" border="0">
 
-**/////////**
+*<a href="https://ibb.co/xKLXnbm7"><img src="https://i.ibb.co/vCqVNWsj/dividers.webp" alt="dividers" border="0"></a>**
  
  <img src="https://i.ibb.co/ZzvxmPWt/whistle.png" alt="whistle" border="0">
  <img src="https://i.ibb.co/B20wsnqG/bands-rickastley.gif" alt="bands-rickastley" border="0">
@@ -155,7 +160,7 @@
 <img src="https://i.ibb.co/wFY1hWpz/eggplant.gif" alt="eggplant" border="0">
 <img src="https://i.ibb.co/21qs279m/animals-whitneychewston.gif" alt="animals-whitneychewston" border="0">
 
-**/////////**
+**<a href="https://ibb.co/1J4yfYth"><img src="https://i.ibb.co/JFS6RWw0/divider-skull.webp" alt="divider-skull" border="0"></a><a href="https://ibb.co/1J4yfYth"><img src="https://i.ibb.co/JFS6RWw0/divider-skull.webp" alt="divider-skull" border="0"></a>**
  
 <img src="https://i.ibb.co/pvGhR2w0/food-coke4.gif" alt="food-coke4" border="0">
 <img src="https://i.ibb.co/DjYBrJ9/food-coke3.gif" alt="food-coke3" border="0">
@@ -174,12 +179,12 @@
 <img src="https://i.ibb.co/q3tp7mmf/food-tacobell.gif" alt="food-tacobell" border="0">
 <img src="https://i.ibb.co/Fk4kVsvV/food-wafflehouse.gif" alt="food-wafflehouse" border="0">
 
-**/////////**
+**<a href="https://ibb.co/1J4yfYth"><img src="https://i.ibb.co/JFS6RWw0/divider-skull.webp" alt="divider-skull" border="0"></a><a href="https://ibb.co/1J4yfYth"><img src="https://i.ibb.co/JFS6RWw0/divider-skull.webp" alt="divider-skull" border="0"></a>**
  
 <img src="https://i.ibb.co/RpxRcC4t/games-gameover.gif" alt="games-gameover" border="0">
  <img src="https://i.ibb.co/spQbX9mP/games-minecraft4.gif" alt="games-minecraft4" border="0">
 
-**/////////**
+**<a href="https://ibb.co/1J4yfYth"><img src="https://i.ibb.co/JFS6RWw0/divider-skull.webp" alt="divider-skull" border="0"></a><a href="https://ibb.co/1J4yfYth"><img src="https://i.ibb.co/JFS6RWw0/divider-skull.webp" alt="divider-skull" border="0"></a>**
  
 <img src="https://i.ibb.co/8nch4Qzf/games-undertale5.gif" alt="games-undertale5" border="0">
 <img src="https://i.ibb.co/8nch4Qzf/games-undertale5.gif" alt="games-undertale5" border="0">
@@ -196,7 +201,7 @@
 <img src="https://i.ibb.co/F4Mwq1Ry/games-undertale4.gif" alt="games-undertale4" border="0">
 <img src="https://i.ibb.co/BVgy3fRM/games-undertale12.gif" alt="games-undertale12" border="0">
 
-**/////////**
+**<a href="https://ibb.co/1J4yfYth"><img src="https://i.ibb.co/JFS6RWw0/divider-skull.webp" alt="divider-skull" border="0"></a><a href="https://ibb.co/1J4yfYth"><img src="https://i.ibb.co/JFS6RWw0/divider-skull.webp" alt="divider-skull" border="0"></a>**
  
 <img src="https://i.ibb.co/23RfpFmS/games-fnaf15.gif" alt="games-fnaf15" border="0">
 <img src="https://i.ibb.co/RkwwXh8Y/games-fnaf7.gif" alt="games-fnaf7" border="0">
@@ -207,7 +212,7 @@
 <img src="https://i.ibb.co/HfmVwjqb/games-fnaf8.gif" alt="games-fnaf8" border="0">
 <img src="https://i.ibb.co/QjNhxMmQ/games-fnaf6.png" alt="games-fnaf6" border="0">
 
-**/////////**
+**<a href="https://ibb.co/1J4yfYth"><img src="https://i.ibb.co/JFS6RWw0/divider-skull.webp" alt="divider-skull" border="0"></a><a href="https://ibb.co/1J4yfYth"><img src="https://i.ibb.co/JFS6RWw0/divider-skull.webp" alt="divider-skull" border="0"></a>**
  
 <img src="https://i.ibb.co/qF2c5XLp/portal.gif" alt="portal" border="0">
 <img src="https://i.ibb.co/s9vgR0Fv/games-portal3.gif" alt="games-portal3" border="0">
@@ -222,7 +227,7 @@
 <img src="https://i.ibb.co/F4rjTNRH/games-portal12.gif" alt="games-portal12" border="0">
 <img src="https://i.ibb.co/679P1GpZ/games-portal11.gif" alt="games-portal11" border="0">
 
-**/////////**
+**<a href="https://ibb.co/1J4yfYth"><img src="https://i.ibb.co/JFS6RWw0/divider-skull.webp" alt="divider-skull" border="0"></a><a href="https://ibb.co/1J4yfYth"><img src="https://i.ibb.co/JFS6RWw0/divider-skull.webp" alt="divider-skull" border="0"></a>**
  
 <img src="https://i.ibb.co/d0Z1BS39/games-pkm2.gif" alt="games-pkm2" border="0">
 <img src="https://i.ibb.co/wF2vVZbQ/games-pkmfire.gif" alt="games-pkmfire" border="0">
@@ -242,7 +247,7 @@
 <img src="https://i.ibb.co/HfkJ6dfk/games-pkmpsychic.gif" alt="games-pkmpsychic" border="0">
 <img src="https://i.ibb.co/JWTNBMgR/games-pkmfairy.gif" alt="games-pkmfairy" border="0">
 
-**/////////**
+**<a href="https://ibb.co/1J4yfYth"><img src="https://i.ibb.co/JFS6RWw0/divider-skull.webp" alt="divider-skull" border="0"></a><a href="https://ibb.co/1J4yfYth"><img src="https://i.ibb.co/JFS6RWw0/divider-skull.webp" alt="divider-skull" border="0"></a>**
 
 <img src="https://i.ibb.co/MxcqnWMB/movies-vhs.gif" alt="movies-vhs" border="0">
 <img src="https://i.ibb.co/j9Wm6SYk/movies-slasher.gif" alt="movies-slasher" border="0">
@@ -263,7 +268,7 @@
 <img src="https://i.ibb.co/yFDwdqby/movies-rockyhorror.gif" alt="movies-rockyhorror" border="0">
  <img src="https://i.ibb.co/vvK8pTgB/shows-adultswim.gif" alt="shows-adultswim" border="0">
 
-**/////////**
+**<a href="https://ibb.co/1J4yfYth"><img src="https://i.ibb.co/JFS6RWw0/divider-skull.webp" alt="divider-skull" border="0"></a><a href="https://ibb.co/1J4yfYth"><img src="https://i.ibb.co/JFS6RWw0/divider-skull.webp" alt="divider-skull" border="0"></a>**
  
 <img src="https://i.ibb.co/21Q4hhxm/bands-mcr.gif" alt="bands-mcr" border="0">
  <img src="https://i.ibb.co/SDq5YcQC/mcr.gif" alt="mcr" border="0">
@@ -286,7 +291,7 @@
 <img src="https://i.ibb.co/jk73zVxc/bands-linkinpark.gif" alt="bands-linkinpark" border="0">
 <img src="https://i.ibb.co/CNmgb2G/bands-greenday.gif" alt="bands-greenday" border="0">
 
-**/////////**
+**<a href="https://ibb.co/1J4yfYth"><img src="https://i.ibb.co/JFS6RWw0/divider-skull.webp" alt="divider-skull" border="0"></a><a href="https://ibb.co/1J4yfYth"><img src="https://i.ibb.co/JFS6RWw0/divider-skull.webp" alt="divider-skull" border="0"></a>**
 
 <img src="https://i.ibb.co/qYhNfXK6/shows-scoobydoo6.gif" alt="shows-scoobydoo6" border="0">
 <img src="https://i.ibb.co/Dg48Cz0D/shows-smilingfriends7.gif" alt="shows-smilingfriends7" border="0">
@@ -319,7 +324,7 @@
 <img src="https://i.ibb.co/ksRMFxjS/sleep.jpg" alt="sleep" border="0">
 <img src="https://i.ibb.co/VYp4yKjY/writer.jpg" alt="writer" border="0">
 
-**/////////**
+**<a href="https://ibb.co/wF6mby48"><img src="https://i.ibb.co/YFjsK2hJ/hug-happy.webp" alt="hug-happy" border="0"></a>**
 
 <img src="https://i.ibb.co/VWSNbx0S/gore3.png" alt="gore3" border="0">
 <img src="https://i.ibb.co/Fb384XPv/meat2.png" alt="meat2" border="0">
