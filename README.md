@@ -5,7 +5,7 @@
 
 <img src="https://i.ibb.co/nqMPJB7m/hazard-hazard-tape.gif" alt="hazard-hazard-tape" border="0">
 <details>
-    <summary>${\textsf{\color{#d16b61}Click to read site warnings BEFORE reading on! }}$</summary> 
+    <summary>${\textsf{\color{#FFFF00}Click to read site warnings BEFORE reading on! }}$</summary> 
  
  My site(s) are **not** sutiabe for those ***`16 and under`***.
  
