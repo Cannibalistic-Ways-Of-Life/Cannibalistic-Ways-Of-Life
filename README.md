@@ -1,15 +1,15 @@
 <img width="400" height="205" alt="image" src="https://github.com/user-attachments/assets/8f7b03b5-bc3e-4480-a789-1d3c4b07afe4" />
  
-### **Haiiiii we're the** ${\textsf{\color{#dc1717}Dead Poets Society}}$
+### **Haiiiii we're the** ${\textsf{\color{#dc1717}Dead Poets Society}}$ <img src="https://i.ibb.co/SDzRJr33/soda.png" alt="soda" border="0">
 </h2> 
 
 <img src="https://i.ibb.co/nqMPJB7m/hazard-hazard-tape.gif" alt="hazard-hazard-tape" border="0">
 <details>
     <summary>${\textsf{\color{#FFFF00}Click to read site warnings BEFORE reading on! }}$</summary> 
  
- My site(s) are **not** sutiabe for those ***`16 and under`***.
+ My site(s) are **not** sutiabe for those ***`16 and under`***. <img src="https://i.ibb.co/23zs9P9k/star3.gif" alt="star3" border="0">
  
- They contain mentions/images of ;; ~~*violence*~~ // ~~*`murder`*~~ // ~~*gore*~~ // ~~*`sex`*~~ // ~~*drugs*~~ // ~~*`cannibalism`*~~ // ~~*suicidal*~~ *ideologies* and *serious mental health conditions*
+ They contain mentions/images of ;; ~~*violence*~~ // ~~*`murder`*~~ // ~~*gore*~~ // ~~*`sex`*~~ // ~~*drugs*~~ // ~~*`cannibalism`*~~ // ~~*suicidal*~~ *ideologies* and *serious mental health conditions* <img src="https://i.ibb.co/hRY9WtxW/medical-box.gif" alt="medical-box" border="0">
 </details>
 <img src="https://i.ibb.co/nqMPJB7m/hazard-hazard-tape.gif" alt="hazard-hazard-tape" border="0">
 
@@ -17,21 +17,21 @@
 > 
 > " Call us ${\textsf{\color{#667422}Vemödalan/Vemö}}$ or ${\textsf{\color{#3bdacb}Sal/Sally}}$ <img src="https://i.ibb.co/SwKWMG80/phone.gif" alt="phone" border="0">
 >
->   " ${\textsf{\color{#be62b8}spiderpunk}}$ |`pokemon(mimikyu my baby :3)` | *life is strange* | `undertale`  ${\textsf{\color{#93dbe6}sally face}}$ **Sal x Larry** ***<3*** <img src="https://i.ibb.co/zhF4sXyr/wing.gif" alt="wing" border="0"> <img src="https://i.ibb.co/fYxDgc1T/wing2.gif" alt="wing2" border="0">
+>   "<img src="https://i.ibb.co/KpBZZPcy/guitar2.gif" alt="guitar2" border="0"> ${\textsf{\color{#be62b8}spiderpunk}}$ **||** <img src="https://i.ibb.co/3mP8HbWP/games-pkm3.gif" alt="games-pkm3" border="0"> `pokemon(mimikyu my baby :3)` **||** <img src="https://i.ibb.co/DDxX03KG/computer4.gif" alt="computer4" border="0"> *life is strange* **||** <img src="https://i.ibb.co/hFtypvLD/emo.gif" alt="emo" border="0"> `undertale` **||** ${\textsf{\color{#93dbe6}sally face}}$ <img src="https://i.ibb.co/0pmyM3sf/computer2.gif" alt="computer2" border="0"> **Sal x Larry** ***<3*** <img src="https://i.ibb.co/zhF4sXyr/wing.gif" alt="wing" border="0"> <img src="https://i.ibb.co/fYxDgc1T/wing2.gif" alt="wing2" border="0">
 >
-> *Ima major* ${\textsf{\color{#93dbe6}Sal Fisher}}$ *kin, he's litteraly me. I tend to get a litte pissed off when people say they relate to him. So be warned!!*
+> *Ima major* ${\textsf{\color{#93dbe6}Sal Fisher}}$ *kin <img src="https://i.ibb.co/60dB6Y9X/animal-shark.gif" alt="animal-shark" border="0"> I tend to get a litte pissed off when people say they relate to him*
 > 
-> <img src="https://i.ibb.co/39D529VX/weppon-blood.webp" alt="weppon-blood" border="0">
+> <img src="https://i.ibb.co/39D529VX/weppon-blood.webp" alt="weppon-blood" border="0"> 
+>
+>   **<img src="https://i.ibb.co/fzKKySnQ/drums.gif" alt="drums" border="0"> ►** **ꉂ(˵˃ ᗜ ˂˵)** `Gender: Nonbinary [They/Them]` <img src="https://i.ibb.co/2YdfQLWt/games-pkm2.gif" alt="games-pkm2" border="0">
 > 
->   **<img src="https://i.ibb.co/KpBZZPcy/guitar2.gif" alt="guitar2" border="0"> ►** **ꉂ(˵˃ ᗜ ˂˵)** `Gender: Nonbinary [They/Them]` 
+> **<img src="https://i.ibb.co/Ps3cVJ8c/weapon-knife4.gif" alt="weapon-knife4" border="0"> ►** Aromantic & ${\textsf{\color{#FF218C}Pan}}$ ${\textsf{\color{#FFD800}sex}}$ ${\textsf{\color{#21B1FF}ual}}$ <img src="https://i.ibb.co/pBKWMCwb/circus.gif" alt="circus" border="0">⠀**ദ്ദി(˵ •̀ ᴗ - ˵ )✧**        ![](https://komarev.com/ghpvc/?username=ClowningAround0&color=000000&style=flat-flat&label=ghost+eyess&abbreviated=true)
 > 
-> **<img src="https://i.ibb.co/Ps3cVJ8c/weapon-knife4.gif" alt="weapon-knife4" border="0"> ►** Aromantic & ${\textsf{\color{#FF218C}Pan}}$ ${\textsf{\color{#FFD800}sex}}$ ${\textsf{\color{#21B1FF}ual}}$ ⠀**ദ്ദി(˵ •̀ ᴗ - ˵ )✧**        ![](https://komarev.com/ghpvc/?username=ClowningAround0&color=000000&style=flat-flat&label=ghost+eyess&abbreviated=true)
-> 
-> **<img src="https://i.ibb.co/bgfzDJfv/weapon-chainsaw.gif" alt="weapon-chainsaw" border="0"> ►** **𖡼.𖤣𖥧𖡼.𖤣𖥧** `Traumagenic system of 200+ alters!! 18+!`
+> **<img src="https://i.ibb.co/bgfzDJfv/weapon-chainsaw.gif" alt="weapon-chainsaw" border="0"> ►** **𖡼.𖤣𖥧𖡼.𖤣𖥧** `Traumagenic system of 200+ alters!! 18+!` <img src="https://i.ibb.co/hJJdFGRb/blood2.gif" alt="blood2" border="0">
 >
 > **<img src="https://i.ibb.co/k2grTNRL/jumble.gif" alt="jumble" border="0"> ►** **(╥﹏╥)** **`BPD/NPD/HPD/ADHD`** | *`Dyslexia/Autism/Schizophrenia`* | **`Periodic paralasys/Short-Term Memoryloss`**  
 >
-> **<a href="https://ibb.co/6Rs7L7bB"><img src="https://i.ibb.co/Fb7LCLJV/computer.gif" alt="computer" border="0"></a>  ►** To learn more about ${\textsf{\color{#febf6d}us}}$ **!** :3  ( ≖‿  ≖ ) ***Heehee*** [*Our carrd!*](https://deadpoetssocietyexe.carrd.co/)
+> **<a href="https://ibb.co/6Rs7L7bB"><img src="https://i.ibb.co/Fb7LCLJV/computer.gif" alt="computer" border="0"></a>  ►** To learn more about ${\textsf{\color{#febf6d}us}}$ **!** :3  ( ≖‿  ≖ ) ***Heehee*** [*Our carrd!*](thesinsofyourfleshmayburnyou.carrd.co/) <img src="https://i.ibb.co/x8q6tM5w/hobby-scissors.gif" alt="hobby-scissors" border="0">
 > 
 > <img src="https://i.ibb.co/FqJkRJNB/gore2.gif" alt="gore2" border="0"> **►** ${\textsf{\color{#be62b8}Important info!}}$ ; [**Proship Info1**](https://proshipresourcesfnaf.carrd.co/#) **////** [**Proship Info2**](https://rentry.co/shipmeaning) **////** [**Proship Info3**](https://define-proship.carrd.co/) **////**
 > [*SHAAAME!!* ; **TW**](https://loki1387.straw.page/antiwallofshame)
