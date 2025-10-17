@@ -31,7 +31,7 @@
 >
 > **<img src="https://i.ibb.co/k2grTNRL/jumble.gif" alt="jumble" border="0"> ►** **(╥﹏╥)** **`BPD/NPD/HPD/ADHD`** | *`Dyslexia/Autism/Schizophrenia`* | **`Periodic paralasys/Short-Term Memoryloss`**  
 >
-> **<a href="https://ibb.co/6Rs7L7bB"><img src="https://i.ibb.co/Fb7LCLJV/computer.gif" alt="computer" border="0"></a>  ►** To learn more about ${\textsf{\color{#febf6d}us}}$ **!** :3  ( ≖‿  ≖ ) ***Heehee*** [*Our carrd!*](thesinsofyourfleshmayburnyou.carrd.co/) <img src="https://i.ibb.co/x8q6tM5w/hobby-scissors.gif" alt="hobby-scissors" border="0">
+> **<a href="https://ibb.co/6Rs7L7bB"><img src="https://i.ibb.co/Fb7LCLJV/computer.gif" alt="computer" border="0"></a>  ►** To learn more about ${\textsf{\color{#febf6d}us}}$ **!** :3  ( ≖‿  ≖ ) ***Heehee*** [*Our carrd!*](https://thesinsofyourfleshmayburnyou.carrd.co/) <img src="https://i.ibb.co/x8q6tM5w/hobby-scissors.gif" alt="hobby-scissors" border="0">
 > 
 > <img src="https://i.ibb.co/FqJkRJNB/gore2.gif" alt="gore2" border="0"> **►** ${\textsf{\color{#be62b8}Important info!}}$ ; [**Proship Info1**](https://proshipresourcesfnaf.carrd.co/#) **////** [**Proship Info2**](https://rentry.co/shipmeaning) **////** [**Proship Info3**](https://define-proship.carrd.co/) **////**
 > [*SHAAAME!!* ; **TW**](https://loki1387.straw.page/antiwallofshame)
