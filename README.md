@@ -57,7 +57,7 @@
 
 <div align="left">
 <details>
-    <summary>${\textsf{\color{#ffce8e}✤ ‧ —– • Flags • —– ٠ ✤ }}$</summary> 
+    <summary>${\textsf{\color{#ee7498}✤ ‧ —– • Flags • —– ٠ ✤ }}$</summary> 
 
 <img width="100" height="150" alt="image" src="https://github.com/user-attachments/assets/8799d494-0ded-4342-8ec5-acac415eccb1" />
 <img width="95" height="135" alt="image" src="https://github.com/user-attachments/assets/57e2f57a-9532-4dbd-a578-c2dec3a3d13e" /> 
