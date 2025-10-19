@@ -95,7 +95,7 @@
 
 <div align="left">
 <details>
-    <summary>${\textsf{\color{#febf6d}✤ ‧ —– • Stamps [warning!] • —– ٠ ✤ }}$</summary> 
+    <summary>${\textsf{\color{#5a9453}✤ ‧ —– • Stamps [warning!] • —– ٠ ✤ }}$</summary> 
 
  ▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱
 
@@ -155,7 +155,7 @@
 
 <div align="left">
 <details>
-    <summary>${\textsf{\color{#ecab56}✤ ‧ —– • Blinkies [warning!] • —– ٠ ✤ }}$</summary> 
+    <summary>${\textsf{\color{#227880}✤ ‧ —– • Blinkies [warning!] • —– ٠ ✤ }}$</summary> 
 
  ▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱
  
@@ -393,7 +393,7 @@
 
 <div align="left">
 <details>
-    <summary>${\textsf{\color{#d1913d}✤ ‧ —– • Other Shit [MEGA warning!!] • —– ٠ ✤ }}$</summary> 
+    <summary>${\textsf{\color{#ffea60}✤ ‧ —– • Other Shit [MEGA warning!!] • —– ٠ ✤ }}$</summary> 
  
 ▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱
 
