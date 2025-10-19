@@ -13,13 +13,14 @@
 </details>
 <img src="https://i.ibb.co/nqMPJB7m/hazard-hazard-tape.gif" alt="hazard-hazard-tape" border="0">
 
+
 **(˵ •̀ ᴗ - ˵ )** ─────────»» <img src="https://i.ibb.co/tpTTRVLp/caution-explicit.jpg" alt="caution-explicit" border="4"> <img src="https://i.ibb.co/r2DWkyGJ/teeth.gif" alt="teeth" border="0">
-> 
+>
 > " Call us ${\textsf{\color{#667422}Vemödalan/Vemö}}$ or ${\textsf{\color{#3bdacb}Sal/Sally}}$ <img src="https://i.ibb.co/SwKWMG80/phone.gif" alt="phone" border="0">
 >
 >   "<img src="https://i.ibb.co/KpBZZPcy/guitar2.gif" alt="guitar2" border="0"> ${\textsf{\color{#be62b8}spiderpunk}}$ **||** <img src="https://i.ibb.co/3mP8HbWP/games-pkm3.gif" alt="games-pkm3" border="0"> `pokemon(mimikyu my baby :3)` **||** <img src="https://i.ibb.co/DDxX03KG/computer4.gif" alt="computer4" border="0"> *life is strange* **||** <img src="https://i.ibb.co/hFtypvLD/emo.gif" alt="emo" border="0"> `undertale` **||** ${\textsf{\color{#93dbe6}sally face}}$ <img src="https://i.ibb.co/0pmyM3sf/computer2.gif" alt="computer2" border="0"> **Sal x Larry** ***<3*** <img src="https://i.ibb.co/zhF4sXyr/wing.gif" alt="wing" border="0"> <img src="https://i.ibb.co/fYxDgc1T/wing2.gif" alt="wing2" border="0">
 >
-> *Ima major* ${\textsf{\color{#93dbe6}Sal Fisher}}$ *kin <img src="https://i.ibb.co/60dB6Y9X/animal-shark.gif" alt="animal-shark" border="0"> I tend to get a litte pissed off when people say they relate to him*
+> *Ima major* ${\textsf{\color{#93dbe6}Sal Fisher}}$ *kin <img src="https://i.ibb.co/60dB6Y9X/animal-shark.gif" alt="animal-shark" border="0"> I tend to get a litte <ins>pissed</ins> off when people say they relate to him*
 > 
 > <img src="https://i.ibb.co/39D529VX/weppon-blood.webp" alt="weppon-blood" border="0"> 
 >
@@ -31,13 +32,13 @@
 >
 > **<img src="https://i.ibb.co/k2grTNRL/jumble.gif" alt="jumble" border="0"> ►** **(╥﹏╥)** **`BPD/NPD/HPD/ADHD`** | *`Dyslexia/Autism/Schizophrenia`* | **`Periodic paralasys/Short-Term Memoryloss`**  
 >
-> **<a href="https://ibb.co/6Rs7L7bB"><img src="https://i.ibb.co/Fb7LCLJV/computer.gif" alt="computer" border="0"></a>  ►** To learn more about ${\textsf{\color{#febf6d}us}}$ **!** :3  ( ≖‿  ≖ ) ***Heehee*** [*Our carrd!*](https://thesinsofyourfleshmayburnyou.carrd.co/) <img src="https://i.ibb.co/x8q6tM5w/hobby-scissors.gif" alt="hobby-scissors" border="0">
+> **<a href="https://ibb.co/6Rs7L7bB"><img src="https://i.ibb.co/Fb7LCLJV/computer.gif" alt="computer" border="0"></a>  ►** To learn more about ${\textsf{\color{#febf6d}us}}$ **!** :3  ( ≖‿  ≖ ) ***Heehee*** [*Ca***rr***d*!*](https://thesinsofyourfleshmayburnyou.carrd.co/) <img src="https://i.ibb.co/x8q6tM5w/hobby-scissors.gif" alt="hobby-scissors" border="0"> [**R***e****nt****ry*](https://rentry.co/AMERlCANlDlOT)
 > 
-> <img src="https://i.ibb.co/FqJkRJNB/gore2.gif" alt="gore2" border="0"> **►** ${\textsf{\color{#be62b8}Important info!}}$ ; [**Proship Info1**](https://proshipresourcesfnaf.carrd.co/#) **////** [**Proship Info2**](https://rentry.co/shipmeaning) **////** [**Proship Info3**](https://define-proship.carrd.co/) **////**
-> [*SHAAAME!!* ; **TW**](https://loki1387.straw.page/antiwallofshame)
->
-> *Take time to* ${\textsf{\color{#37d81f}educate}}$ ***not*** ${\textsf{\color{#f31515}hate}}$ <a href="https://ibb.co/cSNrVPN7"><img src="https://i.ibb.co/jPLrsdL1/computer3.gif" alt="computer3" border="0"></a> <a href="https://ibb.co/cSNrVPN7"><img src="https://i.ibb.co/jPLrsdL1/computer3.gif" alt="computer3" border="0"></a>
-
+> <img src="https://i.ibb.co/FqJkRJNB/gore2.gif" alt="gore2" border="0"> **►** ${\textsf{\color{#be62b8}Important info!}}$ ; [**Proship Info1**](https://proshipresourcesfnaf.carrd.co/#) **////** [**Proship Info2**](https://rentry.co/shipmeaning) **////** [*Proship Info3**](https://define-proship.carrd.co/) **////**
+> [*SHAAAME!!* ; **TW**](https://loki1387.straw.page/antiwallofshame)  
+***
+ *Take time to* ${\textsf{\color{#37d81f}educate}}$ <ins>***not***</ins> ${\textsf{\color{#f31515}hate}}$ <a href="https://ibb.co/cSNrVPN7"><img src="https://i.ibb.co/jPLrsdL1/computer3.gif" alt="computer3" border="0"></a> <a href="https://ibb.co/cSNrVPN7"><img src="https://i.ibb.co/jPLrsdL1/computer3.gif" alt="computer3" border="0"></a>
+***
 
  <img width="300" height="250" alt="image" src="https://github.com/user-attachments/assets/60e3a689-59fc-42c8-98f5-35f698638037" /> 
  <p align="left">
