@@ -48,6 +48,8 @@
 
  <img src="https://i.ibb.co/b40Hrfp/divider.gif" alt="divider" border="0">
 
+### ${\textsf{\color{#227880}Art by}}$ ${\textsf{\color{#3bdacb}me}}$ ${\textsf{\color{#227880}:3 Plz provide credit if use}}$ <img src="https://i.ibb.co/SDzRJr33/soda.png" alt="soda" border="0">
+
  </a><a href="https://ibb.co/ynX7LQ8S"><img src="https://i.ibb.co/BVtF8CgN/divider-aesthetic.gif" alt="divider-aesthetic" border="0"></a><a href="https://ibb.co/ynX7LQ8S"><img src="https://i.ibb.co/BVtF8CgN/divider-aesthetic.gif" alt="divider-aesthetic" border="0"></a></a><a href="https://ibb.co/ynX7LQ8S"><img src="https://i.ibb.co/BVtF8CgN/divider-aesthetic.gif" alt="divider-aesthetic" border="0"></a>
 
 
