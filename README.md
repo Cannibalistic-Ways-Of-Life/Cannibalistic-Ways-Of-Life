@@ -7,14 +7,18 @@
 <details>
     <summary>${\textsf{\color{#FFFF00}Click to read site warnings BEFORE reading on! }}$</summary> 
  
- My site(s) are **not** sutiabe for those ***`16 and under`***. <img src="https://i.ibb.co/23zs9P9k/star3.gif" alt="star3" border="0">
- 
- They contain mentions/images of ;; ~~*violence*~~ // ~~*`murder`*~~ // ~~*gore*~~ // ~~*`sex`*~~ // ~~*drugs*~~ // ~~*`cannibalism`*~~ // ~~*suicidal*~~ *ideologies* and *serious mental health conditions* <img src="https://i.ibb.co/hRY9WtxW/medical-box.gif" alt="medical-box" border="0">
+ My site(s) are <ins>**not**</ins> sutiabe for those ***`16 and under`***. <img src="https://i.ibb.co/23zs9P9k/star3.gif" alt="star3" border="0">
+ *They contain mentions/images of ;;*
+ ***
+~~*violence*~~ // ~~*`murder`*~~ // ~~*gore*~~ // ~~*`sex`*~~ // ~~*drugs*~~ // ~~*`cannibalism`*~~ // ~~*suicidal*~~ *ideologies* and <ins>*serious mental health conditions*</ins> <img src="https://i.ibb.co/hRY9WtxW/medical-box.gif" alt="medical-box" border="0">
+ ***
 </details>
 <img src="https://i.ibb.co/nqMPJB7m/hazard-hazard-tape.gif" alt="hazard-hazard-tape" border="0">
 
 
-**(˵ •̀ ᴗ - ˵ )** ─────────»» <img src="https://i.ibb.co/tpTTRVLp/caution-explicit.jpg" alt="caution-explicit" border="4"> <img src="https://i.ibb.co/r2DWkyGJ/teeth.gif" alt="teeth" border="0">
+
+<a href="https://ibb.co/DPtQRg61"><img src="https://i.ibb.co/0pcrGVWn/tumblr-fe5012a2c24d58c98d7b39c0411806f7-7d87f3cc-75.webp" alt="tumblr-fe5012a2c24d58c98d7b39c0411806f7-7d87f3cc-75" border="0"></a> <img src="https://i.ibb.co/tpTTRVLp/caution-explicit.jpg" alt="caution-explicit" border="4">
+**(˵ •̀ ᴗ - ˵ )** ─────────»»
 >
 > " Call us ${\textsf{\color{#667422}Vemödalan/Vemö}}$ or ${\textsf{\color{#3bdacb}Sal/Sally}}$ <img src="https://i.ibb.co/SwKWMG80/phone.gif" alt="phone" border="0">
 >
@@ -34,10 +38,10 @@
 >
 > **<a href="https://ibb.co/6Rs7L7bB"><img src="https://i.ibb.co/Fb7LCLJV/computer.gif" alt="computer" border="0"></a>  ►** To learn more about ${\textsf{\color{#febf6d}us}}$ **!** :3  ( ≖‿  ≖ ) ***Heehee*** [*Ca***rr***d*!*](https://thesinsofyourfleshmayburnyou.carrd.co/) <img src="https://i.ibb.co/x8q6tM5w/hobby-scissors.gif" alt="hobby-scissors" border="0"> [**R***e****nt****ry*](https://rentry.co/AMERlCANlDlOT)
 > 
-> <img src="https://i.ibb.co/FqJkRJNB/gore2.gif" alt="gore2" border="0"> **►** ${\textsf{\color{#be62b8}Important info!}}$ ; [**Proship Info1**](https://proshipresourcesfnaf.carrd.co/#) **////** [**Proship Info2**](https://rentry.co/shipmeaning) **////** [*Proship Info3**](https://define-proship.carrd.co/) **////**
+> <img src="https://i.ibb.co/FqJkRJNB/gore2.gif" alt="gore2" border="0"> **►** ${\textsf{\color{#be62b8}Important info!}}$ ; [**Proship Info1**](https://proshipresourcesfnaf.carrd.co/#) **////** [**Proship Info2**](https://rentry.co/shipmeaning) **`////`** [**Proship Info3**](https://define-proship.carrd.co/) **////**
 > [*SHAAAME!!* ; **TW**](https://loki1387.straw.page/antiwallofshame)  
 ***
- *Take time to* ${\textsf{\color{#37d81f}educate}}$ <ins>***not***</ins> ${\textsf{\color{#f31515}hate}}$ <a href="https://ibb.co/cSNrVPN7"><img src="https://i.ibb.co/jPLrsdL1/computer3.gif" alt="computer3" border="0"></a> <a href="https://ibb.co/cSNrVPN7"><img src="https://i.ibb.co/jPLrsdL1/computer3.gif" alt="computer3" border="0"></a>
+ *Take time to* ${\textsf{\color{#37d81f}educate}}$ <ins>***not***</ins> ${\textsf{\color{#f31515}hate}}$ <a href="https://ibb.co/cSNrVPN7"><img src="https://i.ibb.co/jPLrsdL1/computer3.gif" alt="computer3" border="0"></a> <a href="https://ibb.co/cSNrVPN7"><img src="https://i.ibb.co/jPLrsdL1/computer3.gif" alt="computer3" border="0"></a>  <img src="https://i.ibb.co/r2DWkyGJ/teeth.gif" alt="teeth" border="0">
 ***
 
  <img width="300" height="250" alt="image" src="https://github.com/user-attachments/assets/60e3a689-59fc-42c8-98f5-35f698638037" /> 
@@ -145,9 +149,9 @@
 <details>
     <summary>${\textsf{\color{#5a9453}✤ ‧ —– • Stamps [warning!] • —– ٠ ✤ }}$</summary> 
 
- ▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱
+*`▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱`*
 
- <img src="https://i.ibb.co/Kzmkw7vN/68747470733a2f2f696d616765732d7769786d702d6564333061383662386334636138383737373335393463322e7769786d.png" alt="68747470733a2f2f696d616765732d7769786d702d6564333061383662386334636138383737373335393463322e7769786d" border="0">
+<img src="https://i.ibb.co/Kzmkw7vN/68747470733a2f2f696d616765732d7769786d702d6564333061383662386334636138383737373335393463322e7769786d.png" alt="68747470733a2f2f696d616765732d7769786d702d6564333061383662386334636138383737373335393463322e7769786d" border="0">
 <img src="https://i.ibb.co/HL0JcbSR/68747470733a2f2f692e6962622e636f2f31364c305270772f36383734373437303733336132663266363936643631363736.png" alt="68747470733a2f2f692e6962622e636f2f31364c305270772f36383734373437303733336132663266363936643631363736" border="0">
  <img src="https://i.ibb.co/QF2X1KMT/games-minecraft.png" alt="games-minecraft" border="0">
  <img src="https://i.ibb.co/MxGqxWGX/games-undertale2.gif" alt="games-undertale2" border="0"> 
@@ -198,14 +202,14 @@
  <img src="https://i.ibb.co/C575fX1p/yt-markiplier4.png" alt="yt-markiplier4" border="0">
  <img src="https://i.ibb.co/hF6jzHzG/yt-markiplier.gif" alt="yt-markiplier" border="0">
  
-▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱
+`▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱`
 </details>
 
 <div align="left">
 <details>
     <summary>${\textsf{\color{#227880}✤ ‧ —– • Blinkies [warning!] • —– ٠ ✤ }}$</summary> 
 
- ▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱
+` ▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱`
  
  <img src="https://i.ibb.co/BHhmYt6p/68747470733a2f2f66696c65732e636174626f782e6d6f652f6277677531642e676966.gif" alt="68747470733a2f2f66696c65732e636174626f782e6d6f652f6277677531642e676966" border="0"> 
  <img src="https://i.ibb.co/mVjqYBX8/68747470733a2f2f66696c65732e636174626f782e6d6f652f76376c766c302e676966.gif" alt="68747470733a2f2f66696c65732e636174626f782e6d6f652f76376c766c302e676966" border="0"> 
@@ -355,7 +359,7 @@
 <img src="https://i.ibb.co/2Y7Z59sd/bands-patd2.jpg" alt="bands-patd2" border="0">
 <img src="https://i.ibb.co/CNmgb2G/bands-greenday.gif" alt="bands-greenday" border="0">
 
-▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱
+`▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱`
 </details>
 
 
@@ -363,13 +367,12 @@
 <details>
     <summary>${\textsf{\color{#de0000}✤ ‧ —– • COWBOY BEPOP!!! • —– ٠ ✤ }}$</summary> 
 
-▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱
+`▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱`
 
 <a href="https://ibb.co/NdJrkd4W"><img src="https://i.ibb.co/bMCFyMfN/tumblr-afac0871d72ca9a0d47201c218e4f3e9-ef2881d4-250.webp" alt="tumblr-afac0871d72ca9a0d47201c218e4f3e9-ef2881d4-250" border="0"></a>
 <a href="https://ibb.co/tpH2rWCX"><img src="https://i.ibb.co/yFNkjbsS/tumblr-517879944bf7a3c11affc350af112b33-db4a49a2-250.webp" alt="tumblr-517879944bf7a3c11affc350af112b33-db4a49a2-250" border="0"></a>
  <a href="https://ibb.co/rGFLBpRh"><img src="https://i.ibb.co/mCbYnyVK/tumblr-eb52d7e184b4fe39b2acfff2b22e551c-f6adef39-250.webp" alt="tumblr-eb52d7e184b4fe39b2acfff2b22e551c-f6adef39-250" border="0"></a>
 <a href="https://ibb.co/LXRMBJnb"><img src="https://i.ibb.co/fzFbZn4B/tumblr-2d3123d7ef1c1b1c166250c997ef7dfb-da575c35-100.webp" alt="tumblr-2d3123d7ef1c1b1c166250c997ef7dfb-da575c35-100" border="0"></a>
-<a href="https://ibb.co/DPtQRg61"><img src="https://i.ibb.co/0pcrGVWn/tumblr-fe5012a2c24d58c98d7b39c0411806f7-7d87f3cc-75.webp" alt="tumblr-fe5012a2c24d58c98d7b39c0411806f7-7d87f3cc-75" border="0"></a>
 
 <a href="https://ibb.co/ZpbYMcj8"><img src="https://i.ibb.co/G4rt5C62/tumblr-e243fbc6285c2370030b179c14ddbd48-214b0694-75.jpg" alt="tumblr-e243fbc6285c2370030b179c14ddbd48-214b0694-75" border="0"></a>
 <a href="https://ibb.co/ptdvj4w"><img src="https://i.ibb.co/fhHYdrF/tumblr-373a60b8479c3ca0a220801bda815ea9-d4e21e6a-75.jpg" alt="tumblr-373a60b8479c3ca0a220801bda815ea9-d4e21e6a-75" border="0"></a>
@@ -398,7 +401,7 @@
 <a href="https://ibb.co/KxX2gGV8"><img src="https://i.ibb.co/23yvr6cp/tumblr-81ad861af5fd177ca1d9f74037fb52a9-3d0dfab1-100.webp" alt="tumblr-81ad861af5fd177ca1d9f74037fb52a9-3d0dfab1-100" border="0"></a>
 <a href="https://ibb.co/jZj3Kp30"><img src="https://i.ibb.co/Z1bcsZc4/tumblr-575053ade0b1db339378c027ae9e7845-fb3b334b-250.webp" alt="tumblr-575053ade0b1db339378c027ae9e7845-fb3b334b-250" border="0"></a>
  
-▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱
+`▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱`
 </details>
 
 
@@ -407,7 +410,7 @@
 <details>
     <summary>${\textsf{\color{#ffea60}✤ ‧ —– • Other Shit [MEGA warning!!] • —– ٠ ✤ }}$</summary> 
  
-▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱
+`▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱`
 
  <img src="https://i.ibb.co/Zpc6fHSr/68747470733a2f2f692e6962622e636f2f30684e4d7666302f7369636b2d626c696e6b792e706e67.png" alt="68747470733a2f2f692e6962622e636f2f30684e4d7666302f7369636b2d626c696e6b792e706e67" border="0">
 <img src="https://i.ibb.co/N6xnvRxB/68747470733a2f2f692e6962622e636f2f796b32433164302f424154534849542d756e68696e6765642e706e67.png" alt="68747470733a2f2f692e6962622e636f2f796b32433164302f424154534849542d756e68696e6765642e706e67" border="0">
@@ -473,6 +476,6 @@
 <img src="https://i.ibb.co/xKX50n8f/horror-meat3.png" alt="horror-meat3" border="0">
 <img src="https://i.ibb.co/MDLVzGzW/horror-meat7.png" alt="horror-meat7" border="0">
 
-▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱
+`▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱`
 </detail>
 
