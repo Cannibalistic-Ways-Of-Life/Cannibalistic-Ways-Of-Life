@@ -20,7 +20,7 @@
 <a href="https://ibb.co/DPtQRg61"><img src="https://i.ibb.co/0pcrGVWn/tumblr-fe5012a2c24d58c98d7b39c0411806f7-7d87f3cc-75.webp" alt="tumblr-fe5012a2c24d58c98d7b39c0411806f7-7d87f3cc-75" border="0"></a> <img src="https://i.ibb.co/tpTTRVLp/caution-explicit.jpg" alt="caution-explicit" border="4">
 **(˵ •̀ ᴗ - ˵ )** ─────────»»
 >
-> " Call us ${\textsf{\color{#667422}Vemödalan/Vemö}}$ or ${\textsf{\color{#3bdacb}Sal/Sally}}$ <img src="https://i.ibb.co/SwKWMG80/phone.gif" alt="phone" border="0">
+> " Call us ${\textsf{\color{#667422}Vemödalan/Vemö}}$ **`///`** ${\textsf{\color{#3bdacb}Sal/Sally}}$ **`///`** ${\textsf{\color{#ff9451}Felix}}$ <img src="https://i.ibb.co/SwKWMG80/phone.gif" alt="phone" border="0">
 >
 >   "<img src="https://i.ibb.co/KpBZZPcy/guitar2.gif" alt="guitar2" border="0"> ${\textsf{\color{#be62b8}spiderpunk}}$ **||** <img src="https://i.ibb.co/3mP8HbWP/games-pkm3.gif" alt="games-pkm3" border="0"> `pokemon(mimikyu my baby :3)` **||** <img src="https://i.ibb.co/DDxX03KG/computer4.gif" alt="computer4" border="0"> *life is strange* **||** <img src="https://i.ibb.co/hFtypvLD/emo.gif" alt="emo" border="0"> `undertale` **||** ${\textsf{\color{#93dbe6}sally face}}$ <img src="https://i.ibb.co/0pmyM3sf/computer2.gif" alt="computer2" border="0"> **Sal x Larry** ***<3*** <img src="https://i.ibb.co/zhF4sXyr/wing.gif" alt="wing" border="0"> <img src="https://i.ibb.co/fYxDgc1T/wing2.gif" alt="wing2" border="0">
 >
