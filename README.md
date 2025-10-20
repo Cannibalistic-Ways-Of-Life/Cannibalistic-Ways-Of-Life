@@ -30,7 +30,7 @@
 >
 >   **<img src="https://i.ibb.co/fzKKySnQ/drums.gif" alt="drums" border="0"> ►** **ꉂ(˵˃ ᗜ ˂˵)** `Gender: Apagender [use/name]` <img src="https://i.ibb.co/2YdfQLWt/games-pkm2.gif" alt="games-pkm2" border="0">
 > 
-> **<img src="https://i.ibb.co/Ps3cVJ8c/weapon-knife4.gif" alt="weapon-knife4" border="0"> ►** Aromantic & ${\textsf{\color{#FF218C}Pan}}$ ${\textsf{\color{#FFD800}sex}}$ ${\textsf{\color{#21B1FF}ual}}$ <img src="https://i.ibb.co/pBKWMCwb/circus.gif" alt="circus" border="0">⠀**ദ്ദി(˵ •̀ ᴗ - ˵ )✧**        ![](https://komarev.com/ghpvc/?username=ClowningAround0&color=000000&style=flat-flat&label=ghost+eyess&abbreviated=true)
+> **<img src="https://i.ibb.co/Ps3cVJ8c/weapon-knife4.gif" alt="weapon-knife4" border="0"> ►** AroAceflux & ${\textsf{\color{#FF218C}Pan}}$ ${\textsf{\color{#FFD800}sex}}$ ${\textsf{\color{#21B1FF}ual}}$ <img src="https://i.ibb.co/pBKWMCwb/circus.gif" alt="circus" border="0">⠀**ദ്ദി(˵ •̀ ᴗ - ˵ )✧**        ![](https://komarev.com/ghpvc/?username=ClowningAround0&color=000000&style=flat-flat&label=ghost+eyess&abbreviated=true)
 > 
 > **<img src="https://i.ibb.co/bgfzDJfv/weapon-chainsaw.gif" alt="weapon-chainsaw" border="0"> ►** **𖡼.𖤣𖥧𖡼.𖤣𖥧** `Traumagenic system of 200+ alters!! 18+!` <img src="https://i.ibb.co/hJJdFGRb/blood2.gif" alt="blood2" border="0">
 >
