@@ -44,6 +44,8 @@
  *Take time to* ${\textsf{\color{#37d81f}educate}}$ <ins>***not***</ins> ${\textsf{\color{#f31515}hate}}$ <a href="https://ibb.co/cSNrVPN7"><img src="https://i.ibb.co/jPLrsdL1/computer3.gif" alt="computer3" border="0"></a> <a href="https://ibb.co/cSNrVPN7"><img src="https://i.ibb.co/jPLrsdL1/computer3.gif" alt="computer3" border="0"></a>  <img src="https://i.ibb.co/r2DWkyGJ/teeth.gif" alt="teeth" border="0">
 ***
 
+<a href="https://ibb.co/Z1Y6cVv9"><img src="https://i.ibb.co/qFWMmdh6/sally-face-1.jpg" alt="sally-face-1" border="0"></a>
+
  <img width="300" height="250" alt="image" src="https://github.com/user-attachments/assets/60e3a689-59fc-42c8-98f5-35f698638037" /> 
  <p align="left">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31fockiwoiev3nx7s3kkxbw3pj4i&redirect=true">
@@ -56,6 +58,7 @@
 ### ${\textsf{\color{#227880}Art by}}$ ${\textsf{\color{#3bdacb}me}}$ ${\textsf{\color{#227880}:3 Plz provide credit if use}}$ <img src="https://i.ibb.co/SDzRJr33/soda.png" alt="soda" border="0">
 
  </a><a href="https://ibb.co/ynX7LQ8S"><img src="https://i.ibb.co/BVtF8CgN/divider-aesthetic.gif" alt="divider-aesthetic" border="0"></a><a href="https://ibb.co/ynX7LQ8S"><img src="https://i.ibb.co/BVtF8CgN/divider-aesthetic.gif" alt="divider-aesthetic" border="0"></a></a><a href="https://ibb.co/ynX7LQ8S"><img src="https://i.ibb.co/BVtF8CgN/divider-aesthetic.gif" alt="divider-aesthetic" border="0"></a>
+
 
 
 <img width="888" height="281" alt="sallyfacepng1 Copy" src="https://github.com/user-attachments/assets/8b2d69c0-edbe-41a7-9dfb-e9ca6b96aeb1" />
