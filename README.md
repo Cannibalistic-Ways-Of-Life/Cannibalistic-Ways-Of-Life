@@ -34,11 +34,11 @@
 > 
 > **<img src="https://i.ibb.co/bgfzDJfv/weapon-chainsaw.gif" alt="weapon-chainsaw" border="0"> ►** **𖡼.𖤣𖥧𖡼.𖤣𖥧** `Traumagenic system of 200+ alters!! 18+!` <img src="https://i.ibb.co/hJJdFGRb/blood2.gif" alt="blood2" border="0">
 >
-> **<img src="https://i.ibb.co/k2grTNRL/jumble.gif" alt="jumble" border="0"> ►** **(╥﹏╥)** **`BPD/NPD/HPD/ADHD`** | *`Dyslexia/Autism/Schizophrenia`* | **`Periodic paralasys/Short-Term Memoryloss`**  
+> **<img src="https://i.ibb.co/k2grTNRL/jumble.gif" alt="jumble" border="0"> ►** **(╥﹏╥)** **`BPD/NPD/HPD/ADHD`** <ins>**~~||~~**</ins> *`Dyslexia/Autism/Schizophrenia`* <ins>**~~||~~**</ins> **`Periodic paralasys/Short-Term Memoryloss`**  
 >
 > **<a href="https://ibb.co/6Rs7L7bB"><img src="https://i.ibb.co/Fb7LCLJV/computer.gif" alt="computer" border="0"></a>  ►** To learn more about ${\textsf{\color{#febf6d}us}}$ **!** :3  ( ≖‿  ≖ ) ***Heehee*** [*Ca***rr***d*!](https://thesinsofyourfleshmayburnyou.carrd.co/) <img src="https://i.ibb.co/x8q6tM5w/hobby-scissors.gif" alt="hobby-scissors" border="0"> [**R***e****nt****ry*](https://rentry.co/AMERlCANlDlOT) <a href="https://ibb.co/kVpc50W9"><img src="https://i.ibb.co/bjxdQL82/tumblr-6183edbd22a281c63b60f816feaee9a1-643a73f1-75.webp" alt="tumblr-6183edbd22a281c63b60f816feaee9a1-643a73f1-75" border="0"></a> [**S***t~~raw~~*page](https://taste-of-flesh.straw.page/)
 > 
-> <img src="https://i.ibb.co/FqJkRJNB/gore2.gif" alt="gore2" border="0"> **►** ${\textsf{\color{#be62b8}Important info!}}$ ; [**Proship Info1**](https://proshipresourcesfnaf.carrd.co/#) **////** [**Proship Info2**](https://rentry.co/shipmeaning) **`////`** [**Proship Info3**](https://define-proship.carrd.co/) **////**
+> <img src="https://i.ibb.co/FqJkRJNB/gore2.gif" alt="gore2" border="0"> **►** ${\textsf{\color{#be62b8}Important info!}}$ ; [**Proship Info1**](https://proshipresourcesfnaf.carrd.co/#) <ins>**`////`**</ins> [**Proship Info2**](https://rentry.co/shipmeaning) <ins>**~~////~~**</ins> [**Proship Info3**](https://define-proship.carrd.co/) <ins>**`////`**</ins>
 > [*SHAAAME!!* ; **TW**](https://loki1387.straw.page/antiwallofshame)  
 ***
  *Take time to* ${\textsf{\color{#37d81f}educate}}$ <ins>***not***</ins> ${\textsf{\color{#f31515}hate}}$ <a href="https://ibb.co/cSNrVPN7"><img src="https://i.ibb.co/jPLrsdL1/computer3.gif" alt="computer3" border="0"></a> <a href="https://ibb.co/cSNrVPN7"><img src="https://i.ibb.co/jPLrsdL1/computer3.gif" alt="computer3" border="0"></a>  <img src="https://i.ibb.co/r2DWkyGJ/teeth.gif" alt="teeth" border="0">
