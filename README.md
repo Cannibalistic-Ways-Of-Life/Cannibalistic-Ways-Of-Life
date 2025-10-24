@@ -18,7 +18,7 @@
 
 
 <a href="https://ibb.co/DPtQRg61"><img src="https://i.ibb.co/0pcrGVWn/tumblr-fe5012a2c24d58c98d7b39c0411806f7-7d87f3cc-75.webp" alt="tumblr-fe5012a2c24d58c98d7b39c0411806f7-7d87f3cc-75" border="0"></a> <img src="https://i.ibb.co/tpTTRVLp/caution-explicit.jpg" alt="caution-explicit" border="4">
-**(˵ •̀ ᴗ - ˵ )** ─────────»» ★ <a href="https://tamanotchi.world/27236c"><img src="https://tamanotchi.world/i/27236" alt="It's tamaNOTchi! Click to feed!"></a> <sub><sub> *my son* <ins>*hubert*</ins> <sub><sub>
+**(˵ •̀ ᴗ - ˵ )** ─────────»» ★ <a href="https://tamanotchi.world/27236c"><img src="https://tamanotchi.world/i/27236" alt="It's tamaNOTchi! Click to feed!"></a> <sub><sub> « <ins>*hubert*</ins> *and* <ins>*gerbt*</ins> » <sub><sub> <a href="https://tamanotchi.world/27238c"><img src="https://tamanotchi.world/i/27238" alt="It's tamaNOTchi! Click to feed!"></a>
 >
 > " Call us ${\textsf{\color{#667422}Vemödalan/Vemö}}$ <img src="https://i.ibb.co/mCSQ5g5q/emo2.gif" alt="emo2" border="0"> **`///`** ${\textsf{\color{#3bdacb}Sal/Sally}}$ <a href="https://ibb.co/396YFVLH"><img src="https://i.ibb.co/hJQ1drtv/salmask1.png" alt="salmask1" border="0"></a> **`///`** ${\textsf{\color{#ff9451}Felix}}$ <img src="https://i.ibb.co/SwKWMG80/phone.gif" alt="phone" border="0">
 >
