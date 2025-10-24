@@ -18,23 +18,22 @@
 
 
 <a href="https://ibb.co/DPtQRg61"><img src="https://i.ibb.co/0pcrGVWn/tumblr-fe5012a2c24d58c98d7b39c0411806f7-7d87f3cc-75.webp" alt="tumblr-fe5012a2c24d58c98d7b39c0411806f7-7d87f3cc-75" border="0"></a> <img src="https://i.ibb.co/tpTTRVLp/caution-explicit.jpg" alt="caution-explicit" border="4">
-**(˵ •̀ ᴗ - ˵ )** ─────────»»
+**(˵ •̀ ᴗ - ˵ )** ─────────»» ★
 >
 > " Call us ${\textsf{\color{#667422}Vemödalan/Vemö}}$ <img src="https://i.ibb.co/mCSQ5g5q/emo2.gif" alt="emo2" border="0"> **`///`** ${\textsf{\color{#3bdacb}Sal/Sally}}$ <a href="https://ibb.co/396YFVLH"><img src="https://i.ibb.co/hJQ1drtv/salmask1.png" alt="salmask1" border="0"></a> **`///`** ${\textsf{\color{#ff9451}Felix}}$ <img src="https://i.ibb.co/SwKWMG80/phone.gif" alt="phone" border="0">
 >
 >   "<img src="https://i.ibb.co/KpBZZPcy/guitar2.gif" alt="guitar2" border="0"> ${\textsf{\color{#be62b8}spiderpunk}}$ <ins>**~~||~~**</ins> <img src="https://i.ibb.co/3mP8HbWP/games-pkm3.gif" alt="games-pkm3" border="0"> `pokemon(mimikyu my baby :3)` <ins>**~~||~~**</ins> <a href="https://ibb.co/xSf4C04Z"><img src="https://i.ibb.co/C5Mr1ZrL/weapon-gun2.gif" alt="weapon-gun2" border="0"></a> ${\textsf{\color{#890606}cowbow bebop}}$ <ins>**~~||~~**</ins> <img src="https://i.ibb.co/hFtypvLD/emo.gif" alt="emo" border="0"> `undertale` <ins>**~~||~~**</ins> ${\textsf{\color{#93dbe6}sally face}}$ <img src="https://i.ibb.co/0pmyM3sf/computer2.gif" alt="computer2" border="0"> <ins>**Sal x Larry**</ins> ***<3*** <a href="https://ibb.co/C51SMmh2"><img src="https://i.ibb.co/hR7TZLDf/salguitar.png" alt="salguitar" border="0"></a> 
 >
->**«· · ──────── ·★· ──────── · ·»**
+>«« **· · ──────── · · <img src="https://i.ibb.co/7NGzXLZk/disc.gif" alt="disc" border="0"> · · ──────── · ·** »»
 >
 > *Ima* ${\textsf{\color{#93dbe6}Sal Fisher}}$ *fictkin* <ins>*he is me and I am him*</ins> <img src="https://i.ibb.co/60dB6Y9X/animal-shark.gif" alt="animal-shark" border="0">
 >
 >*If were talking/sitting together please* <ins>**dont**</ins> *wear a* ${\textsf{\color{#93dbe6}sal fisher}}$ *skin, or say you kin him.* <img src="https://i.ibb.co/Kp699cCD/animal-fish9.gif" alt="animal-fish9" border="0">
 >
 > *I hide <ins>freely</ins> if you disrespect my boundary. <ins>Its nothing personal against you I just have a major discomfort with that*</ins> <img src="https://i.ibb.co/CpLkwXTc/ezgif-com-animated-gif-maker-1.gif" alt="ezgif-com-animated-gif-maker-1" border="0">
- <img src="https://i.ibb.co/zhF4sXyr/wing.gif" alt="wing" border="0"> <img src="https://i.ibb.co/fYxDgc1T/wing2.gif" alt="wing2" border="0">
 >
->**«· · ──────── ·★· ──────── · ·»**
->
+>«« **· · ──────── · · <img src="https://i.ibb.co/7NGzXLZk/disc.gif" alt="disc" border="0"> · · ──────── · ·** »»
+> 
 > <img src="https://i.ibb.co/39D529VX/weppon-blood.webp" alt="weppon-blood" border="0"> 
 >
 >   **<img src="https://i.ibb.co/fzKKySnQ/drums.gif" alt="drums" border="0"> ►** **ꉂ(˵˃ ᗜ ˂˵)** `Gender: Apagender [use/name]` <img src="https://i.ibb.co/2YdfQLWt/games-pkm2.gif" alt="games-pkm2" border="0">
