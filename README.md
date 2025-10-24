@@ -30,7 +30,7 @@
 >
 >*If were talking/sitting together please* <ins>**dont**</ins> *wear a* ${\textsf{\color{#93dbe6}sal fisher}}$ *skin, or say you kin him.* <img src="https://i.ibb.co/Kp699cCD/animal-fish9.gif" alt="animal-fish9" border="0">
 >
-> *I hide <ins>freely</ins> if you disrespect my boundary. <ins>Its nothing personal against you I just have a major discomfort with that*</ins> <img src="https://i.ibb.co/spXKZchv/animal-fish18.gif" alt="animal-fish18" border="0">
+> *I hide <ins>freely</ins> if you disrespect my boundary. <ins>Its nothing personal against you I just have a major discomfort with that*</ins> <img src="https://i.ibb.co/CpLkwXTc/ezgif-com-animated-gif-maker-1.gif" alt="ezgif-com-animated-gif-maker-1" border="0">
  <img src="https://i.ibb.co/zhF4sXyr/wing.gif" alt="wing" border="0"> <img src="https://i.ibb.co/fYxDgc1T/wing2.gif" alt="wing2" border="0">
 >
 >**«· · ──────── ·★· ──────── · ·»**
