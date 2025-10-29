@@ -63,16 +63,11 @@
 
  <img src="https://i.ibb.co/b40Hrfp/divider.gif" alt="divider" border="0">
 
-### ${\textsf{\color{#227880}Art by}}$ ${\textsf{\color{#3bdacb}me}}$ ${\textsf{\color{#227880}:3 Plz provide credit if use}}$ <img src="https://i.ibb.co/SDzRJr33/soda.png" alt="soda" border="0">
-
- </a><a href="https://ibb.co/ynX7LQ8S"><img src="https://i.ibb.co/BVtF8CgN/divider-aesthetic.gif" alt="divider-aesthetic" border="0"></a><a href="https://ibb.co/ynX7LQ8S"><img src="https://i.ibb.co/BVtF8CgN/divider-aesthetic.gif" alt="divider-aesthetic" border="0"></a></a><a href="https://ibb.co/ynX7LQ8S"><img src="https://i.ibb.co/BVtF8CgN/divider-aesthetic.gif" alt="divider-aesthetic" border="0"></a>
+#### ${\textsf{\color{#227880}Graphic by}}$ [my pookie<3](https://rentry.co/settleforadraw) ${\textsf{\color{#227880}:3 not free to use}}$ <img src="https://i.ibb.co/SDzRJr33/soda.png" alt="soda" border="0">
 
 
+<img width="1500" height="1000" alt="Untitled181_20251029083221" src="https://github.com/user-attachments/assets/0ce9d554-312d-42e0-be64-4218523b5ab8" />
 
-<img width="888" height="281" alt="sallyfacepng1 Copy" src="https://github.com/user-attachments/assets/8b2d69c0-edbe-41a7-9dfb-e9ca6b96aeb1" />
-
-
- <a href="https://ibb.co/ynX7LQ8S"><img src="https://i.ibb.co/BVtF8CgN/divider-aesthetic.gif" alt="divider-aesthetic" border="0"></a><a href="https://ibb.co/ynX7LQ8S"><img src="https://i.ibb.co/BVtF8CgN/divider-aesthetic.gif" alt="divider-aesthetic" border="0"></a><a href="https://ibb.co/ynX7LQ8S"><img src="https://i.ibb.co/BVtF8CgN/divider-aesthetic.gif" alt="divider-aesthetic" border="0"></a>
 
 **◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤**
 
