@@ -61,6 +61,8 @@
 
 <img width="405" height="86" alt="image" src="https://github.com/user-attachments/assets/98017116-3ba0-4e4c-af35-d2bd5beed7db" />
 
+<img width="540" height="243" alt="image" src="https://github.com/user-attachments/assets/5f4f24dd-8ab1-4be5-9337-2a9e0e24172b" />
+
  <p align="left">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31fockiwoiev3nx7s3kkxbw3pj4i&redirect=true">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31fockiwoiev3nx7s3kkxbw3pj4i&cover_image=true&theme=spotify-embed&show_offline=false&background_color=000000&interchange=false&profanity=false&mode=dark&bar_color=59b7c9&bar_color_cover=false">
