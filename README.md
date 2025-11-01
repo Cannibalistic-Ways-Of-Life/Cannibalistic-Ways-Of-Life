@@ -51,10 +51,16 @@
 ***
  *Take time to* ${\textsf{\color{#37d81f}educate}}$ <ins>***not***</ins> ${\textsf{\color{#f31515}hate}}$ <a href="https://ibb.co/cSNrVPN7"><img src="https://i.ibb.co/jPLrsdL1/computer3.gif" alt="computer3" border="0"></a> <a href="https://ibb.co/cSNrVPN7"><img src="https://i.ibb.co/jPLrsdL1/computer3.gif" alt="computer3" border="0"></a>  <img src="https://i.ibb.co/r2DWkyGJ/teeth.gif" alt="teeth" border="0">
 ***
+#### ${\textsf{\color{#227880}userboxes by}}$ ${\textsf{\color{#93dbe6}me!}}$ ${\textsf{\color{#227880}:3 not free to use}}$ <img src="https://i.ibb.co/SDzRJr33/soda.png" alt="soda" border="0">
 
-<a href="https://ibb.co/Z1Y6cVv9"><img src="https://i.ibb.co/qFWMmdh6/sally-face-1.jpg" alt="sally-face-1" border="0"></a>
+<img width="405" height="86" alt="image" src="https://github.com/user-attachments/assets/11ec8045-e36e-45fd-8c62-ecf1f1730616" />
 
- <img width="300" height="250" alt="image" src="https://github.com/user-attachments/assets/60e3a689-59fc-42c8-98f5-35f698638037" /> 
+<img width="405" height="86" alt="image" src="https://github.com/user-attachments/assets/fe9af073-83f9-423f-876c-6ce39828cfe5" />
+
+<img width="405" height="87" alt="image" src="https://github.com/user-attachments/assets/70c5e3da-2a36-4718-b6e3-8acee929495f" />
+
+<img width="405" height="86" alt="image" src="https://github.com/user-attachments/assets/98017116-3ba0-4e4c-af35-d2bd5beed7db" />
+
  <p align="left">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31fockiwoiev3nx7s3kkxbw3pj4i&redirect=true">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31fockiwoiev3nx7s3kkxbw3pj4i&cover_image=true&theme=spotify-embed&show_offline=false&background_color=000000&interchange=false&profanity=false&mode=dark&bar_color=59b7c9&bar_color_cover=false">
