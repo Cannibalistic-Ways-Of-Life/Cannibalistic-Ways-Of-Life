@@ -24,7 +24,7 @@
 >
 >   "<img src="https://i.ibb.co/KpBZZPcy/guitar2.gif" alt="guitar2" border="0"> ${\textsf{\color{#be62b8}spiderpunk}}$ <ins>**~~||~~**</ins> <img src="https://i.ibb.co/3mP8HbWP/games-pkm3.gif" alt="games-pkm3" border="0"> `pokemon(mimikyu my baby :3)` <ins>**~~||~~**</ins> <a href="https://ibb.co/xSf4C04Z"><img src="https://i.ibb.co/C5Mr1ZrL/weapon-gun2.gif" alt="weapon-gun2" border="0"></a> ${\textsf{\color{#890606}cowbow bebop}}$ <ins>**~~||~~**</ins> <img src="https://i.ibb.co/hFtypvLD/emo.gif" alt="emo" border="0"> `undertale` <ins>**~~||~~**</ins> ${\textsf{\color{#93dbe6}sally face}}$ <img src="https://i.ibb.co/CK4q9Gtp/search-computer-0004.gif" alt="search-computer-0004" border="0"> <ins>**Sal x Larry**</ins> ***<3*** <a href="https://ibb.co/C51SMmh2"><img src="https://i.ibb.co/hR7TZLDf/salguitar.png" alt="salguitar" border="0"></a> 
 >
->«« <ins>~~**═══════════**~~</ins> <img src="https://i.ibb.co/7NGzXLZk/disc.gif" alt="disc" border="0"> <ins>~~**═══════════**~~</ins> »»
+>«« <ins>~~**·═════════════·**~~</ins> <img src="https://i.ibb.co/7NGzXLZk/disc.gif" alt="disc" border="0"> <ins>~~**·═════════════·**~~</ins> »»
 >
 > *Ima* ${\textsf{\color{#93dbe6}Sal Fisher}}$ *fictkin* <ins>*he is me and I am him*</ins> <img src="https://i.ibb.co/60dB6Y9X/animal-shark.gif" alt="animal-shark" border="0">
 >
@@ -32,7 +32,7 @@
 >
 > *I hide <ins>freely</ins> if you disrespect my boundary. <ins>Its nothing personal against you I just have a major discomfort with that*</ins> <img src="https://i.ibb.co/CpLkwXTc/ezgif-com-animated-gif-maker-1.gif" alt="ezgif-com-animated-gif-maker-1" border="0">
 >
->«« <ins>**~~· ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌ ·~~**</ins> <img src="https://i.ibb.co/7NGzXLZk/disc.gif" alt="disc" border="0"> <ins>**~~· ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌ ·~~**</ins> »»
+>«« <ins>**~~· ﹌﹌﹌﹌﹌﹌﹌﹌ ·~~**</ins> <img src="https://i.ibb.co/7NGzXLZk/disc.gif" alt="disc" border="0"> <ins>**~~· ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌ ·~~**</ins> »»
 > 
 > <img src="https://i.ibb.co/39D529VX/weppon-blood.webp" alt="weppon-blood" border="0"> 
 >
