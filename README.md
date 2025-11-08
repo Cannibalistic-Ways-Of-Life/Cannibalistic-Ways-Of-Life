@@ -77,7 +77,7 @@
 <img width="1500" height="1000" alt="Untitled181_20251029083221" src="https://github.com/user-attachments/assets/0ce9d554-312d-42e0-be64-4218523b5ab8" />
 
 
-**◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤**
+**◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤**
 
 <div align="left">
 <details>
@@ -425,6 +425,7 @@
 <a href="https://ibb.co/jZj3Kp30"><img src="https://i.ibb.co/Z1bcsZc4/tumblr-575053ade0b1db339378c027ae9e7845-fb3b334b-250.webp" alt="tumblr-575053ade0b1db339378c027ae9e7845-fb3b334b-250" border="0"></a>
  
 `▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱`
+
 </details>
 
 
@@ -435,8 +436,39 @@
  
 `▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱`
 
- <img src="https://i.ibb.co/Zpc6fHSr/68747470733a2f2f692e6962622e636f2f30684e4d7666302f7369636b2d626c696e6b792e706e67.png" alt="68747470733a2f2f692e6962622e636f2f30684e4d7666302f7369636b2d626c696e6b792e706e67" border="0">
-<img src="https://i.ibb.co/N6xnvRxB/68747470733a2f2f692e6962622e636f2f796b32433164302f424154534849542d756e68696e6765642e706e67.png" alt="68747470733a2f2f692e6962622e636f2f796b32433164302f424154534849542d756e68696e6765642e706e67" border="0">
+<img width="440" height="133" alt="image" src="https://github.com/user-attachments/assets/b5b7f23f-c4e8-4db6-9ba4-1cae6fb16e60" />
+
+<img width="440" height="133" alt="image" src="https://github.com/user-attachments/assets/d872c30d-cfbb-45fc-a0d9-d71b8d79c265" />
+
+<img width="440" height="133" alt="image" src="https://github.com/user-attachments/assets/3a16b4a5-a535-4b5b-8614-2a658ab4f68f" />
+
+<img width="440" height="133" alt="image" src="https://github.com/user-attachments/assets/4875075c-7713-40a2-b757-60ceff406a5d" />
+
+<img width="440" height="133" alt="image" src="https://github.com/user-attachments/assets/ffc2b824-191e-4d46-9bc3-87e3c29b6762" />
+
+<img width="440" height="133" alt="image" src="https://github.com/user-attachments/assets/55199ec3-7e11-40c5-8c04-406c15a22112" />
+
+<img width="440" height="133" alt="image" src="https://github.com/user-attachments/assets/a779782d-e1b3-4cd1-ad5c-8fb03dd96dde" />
+
+<img width="440" height="133" alt="image" src="https://github.com/user-attachments/assets/a424743d-a027-409a-a190-b2f92c33896c" />
+
+<img width="440" height="133" alt="image" src="https://github.com/user-attachments/assets/659ff48c-dc7c-4ef8-9cad-7af9faa4a947" />
+
+<img width="440" height="133" alt="image" src="https://github.com/user-attachments/assets/15aeee10-4bb6-441a-b2b2-1e68520bb83a" />
+
+<img width="440" height="133" alt="image" src="https://github.com/user-attachments/assets/76e18883-6a13-4f76-8f38-0e5c4ae209a4" />
+
+<img width="440" height="133" alt="image" src="https://github.com/user-attachments/assets/1fa3f56d-3a01-4f2c-a728-402ddc317fbd" />
+
+<img width="440" height="133" alt="image" src="https://github.com/user-attachments/assets/96d2c520-9c6d-423a-a055-70d1fc539738" />
+
+<img width="440" height="133" alt="image" src="https://github.com/user-attachments/assets/342fab72-b051-4f7b-b574-a65afabfdbbc" />
+
+> <img src="https://i.ibb.co/NdBbSx0T/scene2.gif" alt="scene2" border="0">
+
+<img src="https://i.ibb.co/Zpc6fHSr/68747470733a2f2f692e6962622e636f2f30684e4d7666302f7369636b2d626c696e6b792e706e67.png" alt="68747470733a2f2f692e6962622e636f2f30684e4d7666302f7369636b2d626c696e6b792e706e67" border="0">
+<img src="https://i.ibb.co/N6xnvRxB/68747470733a2f2f692e6962622e636f2f796b32433164302f424154534849542d756e68696e6765642e706e67.png" 
+alt="68747470733a2f2f692e6962622e636f2f796b32433164302f424154534849542d756e68696e6765642e706e67" border="0">
 <img src="https://i.ibb.co/Cs40SYP5/68747470733a2f2f692e6962622e636f2f744d43684d646e2f6d697374616b65732e706e67.png" alt="68747470733a2f2f692e6962622e636f2f744d43684d646e2f6d697374616b65732e706e67" border="0">
 <img src="https://i.ibb.co/ccHhrQT5/68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f30313435346233313937396236373863643036613631.png" alt="68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f30313435346233313937396236373863643036613631" border="0">
 <img src="https://i.ibb.co/zhSz1DYj/68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f31643466343164376466383464353537313434303562.jpg" alt="68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f31643466343164376466383464353537313434303562" border="0">
@@ -445,19 +477,28 @@
 <img src="https://i.ibb.co/fG1kK190/68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f61643737393563643061333466386564316437346164.jpg" alt="68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f61643737393563643061333466386564316437346164" border="0">
 <img src="https://i.ibb.co/1JXtvq7S/68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f65626332313031626539323666353862343436353837.jpg" alt="68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f65626332313031626539323666353862343436353837" border="0">
 <img src="https://i.ibb.co/spp4T8QL/68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f31626639353239363731343538616432346438643531.jpg" alt="68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f31626639353239363731343538616432346438643531" border="0">
+
 <img src="https://i.ibb.co/qY5W1KL6/prefernot.jpg" alt="prefernot" border="0">
+
 <img src="https://i.ibb.co/ycgtWMyH/goodolddays.jpg" alt="goodolddays" border="0">
+
 <img src="https://i.ibb.co/9Hc1LQhL/afraid.jpg" alt="afraid" border="0">
+
 <img src="https://i.ibb.co/FbhtyvJ7/music.jpg" alt="music" border="0">
+
 <img src="https://i.ibb.co/5hxzKQsd/fictional-Characters.jpg" alt="fictional-Characters" border="0">
+
 <img src="https://i.ibb.co/n8wQj8gZ/sky.jpg" alt="sky" border="0">
+
 <img src="https://i.ibb.co/CKmwNC3J/bands-linkinpark.jpg" alt="bands-linkinpark" border="0">
+
 <img src="https://i.ibb.co/9HPHtdGQ/mee.jpg" alt="mee" border="0">
+
 <img src="https://i.ibb.co/WWJMrRtk/soft.jpg" alt="soft" border="0">
+
 <img src="https://i.ibb.co/ksRMFxjS/sleep.jpg" alt="sleep" border="0">
+
 <img src="https://i.ibb.co/VYp4yKjY/writer.jpg" alt="writer" border="0">
-<img src="https://i.ibb.co/0pL3yxTb/aro.jpg" alt="aro" border="0">
-<img src="https://i.ibb.co/kVBMWCyr/demon.jpg" alt="demon" border="0">
 
 > <img src="https://i.ibb.co/NdBbSx0T/scene2.gif" alt="scene2" border="0">
 
