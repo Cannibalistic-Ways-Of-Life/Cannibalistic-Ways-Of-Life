@@ -49,9 +49,9 @@
 ***
  *Take time to* ${\textsf{\color{#37d81f}educate}}$ <ins>***not***</ins> ${\textsf{\color{#f31515}hate}}$ <a href="https://ibb.co/cSNrVPN7"><img src="https://i.ibb.co/jPLrsdL1/computer3.gif" alt="computer3" border="0"></a> <a href="https://ibb.co/cSNrVPN7"><img src="https://i.ibb.co/jPLrsdL1/computer3.gif" alt="computer3" border="0"></a>  <img src="https://i.ibb.co/r2DWkyGJ/teeth.gif" alt="teeth" border="0">
 ***
-#### ${\textsf{\color{#227880}userboxes by}}$ ${\textsf{\color{#93dbe6}me!}}$ ${\textsf{\color{#227880}:3 not free to use}}$ <img src="https://i.ibb.co/SDzRJr33/soda.png" alt="soda" border="0">
+### ${\textsf{\color{#227880}userboxes by}}$ ${\textsf{\color{#93dbe6}me!}}$ ${\textsf{\color{#227880}:3 not free to use}}$ <img src="https://i.ibb.co/SDzRJr33/soda.png" alt="soda" border="0">
 
-<img width="𝟨𝟢𝟢" height="𝟣𝟧𝟢" alt="tumblr_b7b82c1305d42833790000c55f045bf8_db5bfb8" src="https://github.com/user-attachments/assets/d482accc-6d2a-44fb-82ea-03bd9c4d5dc2" />
+<img width="𝟪𝟢𝟢" height="𝟤𝟢𝟢" alt="tumblr_b7b82c1305d42833790000c55f045bf8_db5bfb8" src="https://github.com/user-attachments/assets/d482accc-6d2a-44fb-82ea-03bd9c4d5dc2" />
 
 <img width="405" height="86" alt="image" src="https://github.com/user-attachments/assets/11ec8045-e36e-45fd-8c62-ecf1f1730616" />
 
