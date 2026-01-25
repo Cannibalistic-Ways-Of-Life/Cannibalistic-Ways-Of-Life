@@ -51,7 +51,12 @@
 ***
 ### ${\textsf{\color{#227880}userboxes by}}$ ${\textsf{\color{#93dbe6}me!}}$ ${\textsf{\color{#227880}:3 not free to use}}$ <img src="https://i.ibb.co/SDzRJr33/soda.png" alt="soda" border="0">
 
-<img width="𝟪𝟢𝟢" height="𝟤𝟢𝟢" alt="tumblr_b7b82c1305d42833790000c55f045bf8_db5bfb8" src="https://github.com/user-attachments/assets/d482accc-6d2a-44fb-82ea-03bd9c4d5dc2" />
+
+
+***
+<img width="700" height="300" alt="tumblr_b7b82c1305d42833790000c55f045bf8_db5bfb8" src="https://github.com/user-attachments/assets/3e1d8f3d-996d-42ca-b59f-75e65e6562f3" />
+
+***
 
 <img width="405" height="86" alt="image" src="https://github.com/user-attachments/assets/11ec8045-e36e-45fd-8c62-ecf1f1730616" />
 
