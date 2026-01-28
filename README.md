@@ -51,40 +51,40 @@
 ***
  *Take time to* ${\textsf{\color{#37d81f}educate}}$ <ins>***not***</ins> ${\textsf{\color{#f31515}hate}}$ <a href="https://ibb.co/cSNrVPN7"><img src="https://i.ibb.co/jPLrsdL1/computer3.gif" alt="computer3" border="0"></a> <a href="https://ibb.co/cSNrVPN7"><img src="https://i.ibb.co/jPLrsdL1/computer3.gif" alt="computer3" border="0"></a>  <img src="https://i.ibb.co/r2DWkyGJ/teeth.gif" alt="teeth" border="0">
 ***
-### ${\textsf{\color{#227880}userboxes by}}$ ${\textsf{\color{#93dbe6}me!}}$ ${\textsf{\color{#227880}:3 not free to use}}$ <img src="https://i.ibb.co/SDzRJr33/soda.png" alt="soda" border="0">
+### <p align="center"> ${\textsf{\color{#227880}userboxes by}}$ ${\textsf{\color{#93dbe6}me!}}$ ${\textsf{\color{#227880}:3 not free to use}}$ <img src="https://i.ibb.co/SDzRJr33/soda.png" alt="soda" border="0"> </p>
 
 
 
 ***
-<img width="700" height="300" alt="tumblr_b7b82c1305d42833790000c55f045bf8_db5bfb8" src="https://github.com/user-attachments/assets/3e1d8f3d-996d-42ca-b59f-75e65e6562f3" />
+<p align="center"> <img width="700" height="300" alt="tumblr_b7b82c1305d42833790000c55f045bf8_db5bfb8" src="https://github.com/user-attachments/assets/3e1d8f3d-996d-42ca-b59f-75e65e6562f3" /> </p>
 
 ***
 
-<img width="405" height="86" alt="image" src="https://github.com/user-attachments/assets/11ec8045-e36e-45fd-8c62-ecf1f1730616" />
+<p align="center"> <img width="405" height="86" alt="image" src="https://github.com/user-attachments/assets/11ec8045-e36e-45fd-8c62-ecf1f1730616" /> </p>
 
-<img width="405" height="86" alt="image" src="https://github.com/user-attachments/assets/fe9af073-83f9-423f-876c-6ce39828cfe5" />
+<p align="center"> <img width="405" height="86" alt="image" src="https://github.com/user-attachments/assets/fe9af073-83f9-423f-876c-6ce39828cfe5" /> </p>
 
-<img width="405" height="87" alt="image" src="https://github.com/user-attachments/assets/70c5e3da-2a36-4718-b6e3-8acee929495f" />
+<p align="center"> <img width="405" height="87" alt="image" src="https://github.com/user-attachments/assets/70c5e3da-2a36-4718-b6e3-8acee929495f" /> </p> 
 
-<img width="405" height="86" alt="image" src="https://github.com/user-attachments/assets/98017116-3ba0-4e4c-af35-d2bd5beed7db" />
+<p align="center"> <img width="405" height="86" alt="image" src="https://github.com/user-attachments/assets/98017116-3ba0-4e4c-af35-d2bd5beed7db" /> </p>
 
-<img width="540" height="243" alt="image" src="https://github.com/user-attachments/assets/5f4f24dd-8ab1-4be5-9337-2a9e0e24172b" />
+<p align="center"> <img width="540" height="243" alt="image" src="https://github.com/user-attachments/assets/5f4f24dd-8ab1-4be5-9337-2a9e0e24172b" /> </p>
 
- <p align="left">
+ <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31fockiwoiev3nx7s3kkxbw3pj4i&redirect=true">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31fockiwoiev3nx7s3kkxbw3pj4i&cover_image=true&theme=spotify-embed&show_offline=false&background_color=000000&interchange=false&profanity=false&mode=dark&bar_color=59b7c9&bar_color_cover=false">
   </a>
 </p>
 
- <img src="https://i.ibb.co/b40Hrfp/divider.gif" alt="divider" border="0">
+<p align="center"> <img src="https://i.ibb.co/b40Hrfp/divider.gif" alt="divider" border="0"> </p>
 
-#### ${\textsf{\color{#227880}Graphic by}}$ [my pookie<3](https://rentry.co/settleforadraw) ${\textsf{\color{#227880}:3 not free to use}}$ <img src="https://i.ibb.co/SDzRJr33/soda.png" alt="soda" border="0">
+#### <p align="center"> ${\textsf{\color{#227880}Graphic by}}$ [my pookie<3](https://rentry.co/settleforadraw) ${\textsf{\color{#227880}:3 not free to use}}$ <img src="https://i.ibb.co/SDzRJr33/soda.png" alt="soda" border="0"> </p>
 
-<img width="1500" height="1000" alt="Untitled181_20251029083221" src="https://github.com/user-attachments/assets/0ce9d554-312d-42e0-be64-4218523b5ab8" />
+<p align="center"> <img width="1500" height="1000" alt="Untitled181_20251029083221" src="https://github.com/user-attachments/assets/0ce9d554-312d-42e0-be64-4218523b5ab8" /> </p>
 
-#### ${\textsf{\color{#227880}Graphic by}}$ [the rainy chaos sys](https://github.com/The-Forest-Syst3m) ${\textsf{\color{#227880}:3 not free to use}}$ <img src="https://i.ibb.co/SDzRJr33/soda.png" alt="soda" border="0">
+#### <p align="center"> ${\textsf{\color{#227880}Graphic by}}$ [the rainy chaos sys](https://github.com/The-Forest-Syst3m) ${\textsf{\color{#227880}:3 not free to use}}$ <img src="https://i.ibb.co/SDzRJr33/soda.png" alt="soda" border="0"> </p>
 
-<img width="1000" height="1000" alt="RATTTTT" src="https://github.com/user-attachments/assets/da2ec0b8-6715-402d-9bfe-27e2701aa813" />
+<p align="center"> <img width="1000" height="1000" alt="RATTTTT" src="https://github.com/user-attachments/assets/da2ec0b8-6715-402d-9bfe-27e2701aa813" /> </p>
 
 **◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤**
 
