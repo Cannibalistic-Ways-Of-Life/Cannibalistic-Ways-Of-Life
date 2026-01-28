@@ -46,6 +46,8 @@
 > 
 > <img src="https://i.ibb.co/FqJkRJNB/gore2.gif" alt="gore2" border="0"> **►** ${\textsf{\color{#be62b8}Important info!}}$ ; [**Proship Info1**](https://proshipresourcesfnaf.carrd.co/#) <ins>**`////`**</ins> [**Proship Info2**](https://rentry.co/shipmeaning) <ins>**~~////~~**</ins> [**Proship Info3**](https://define-proship.carrd.co/) <ins>**`////`**</ins>
 > [*SHAAAME!!* ; **TW**](https://loki1387.straw.page/antiwallofshame)  
+>
+> ### [My 1#](https://github.com/hexcorez) <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/11c64670-ca12-4d0e-a817-8808e4503919" />
 ***
  *Take time to* ${\textsf{\color{#37d81f}educate}}$ <ins>***not***</ins> ${\textsf{\color{#f31515}hate}}$ <a href="https://ibb.co/cSNrVPN7"><img src="https://i.ibb.co/jPLrsdL1/computer3.gif" alt="computer3" border="0"></a> <a href="https://ibb.co/cSNrVPN7"><img src="https://i.ibb.co/jPLrsdL1/computer3.gif" alt="computer3" border="0"></a>  <img src="https://i.ibb.co/r2DWkyGJ/teeth.gif" alt="teeth" border="0">
 ***
