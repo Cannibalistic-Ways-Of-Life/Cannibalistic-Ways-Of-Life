@@ -1,6 +1,6 @@
 <img width="400" height="205" alt="image" src="https://github.com/user-attachments/assets/8f7b03b5-bc3e-4480-a789-1d3c4b07afe4" />
  
-### **Haiiiii we're the** ${\textsf{\color{#dc1717}Dead Poets Society}}$ <img src="https://i.ibb.co/SDzRJr33/soda.png" alt="soda" border="0">
+### **Haiiiii we're the** ${\textsf{\color{#dc1717}Dead Beat Society}}$ <img src="https://i.ibb.co/SDzRJr33/soda.png" alt="soda" border="0">
 </h2> 
 
 <img src="https://i.ibb.co/nqMPJB7m/hazard-hazard-tape.gif" alt="hazard-hazard-tape" border="0">
