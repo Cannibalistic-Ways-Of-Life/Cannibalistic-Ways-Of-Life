@@ -78,7 +78,7 @@
 
 <p align="center"> <img src="https://i.ibb.co/b40Hrfp/divider.gif" alt="divider" border="0"> </p>
 
-#### <p align="center"> ${\textsf{\color{#227880}Graphic by}}$ [my pookie<3](https://rentry.co/settleforadraw) ${\textsf{\color{#227880}:3 not free to use}}$ <img src="https://i.ibb.co/SDzRJr33/soda.png" alt="soda" border="0"> </p>
+#### <p align="center"> ${\textsf{\color{#227880}Graphic by}}$ [my pookie<3](https://github.com/hexcorez) ${\textsf{\color{#227880}:3 not free to use}}$ <img src="https://i.ibb.co/SDzRJr33/soda.png" alt="soda" border="0"> </p>
 
 <p align="center"> <img width="1500" height="1000" alt="Untitled181_20251029083221" src="https://github.com/user-attachments/assets/0ce9d554-312d-42e0-be64-4218523b5ab8" /> </p>
 
@@ -444,6 +444,9 @@
     <summary>${\textsf{\color{#ffea60}✤ ‧ —– • Other Shit [MEGA warning!!] • —– ٠ ✤ }}$</summary> 
  
 `▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱`
+
+### ***ALL*** userboxes below by me FTU wth CREDIT {lnk git}
+![userbox11](https://github.com/user-attachments/assets/d509c622-cda2-4be5-8c6c-0ed525ae8911)
 
 <img width="350" height="133" alt="tumblr_47a1f639e4c2757dddb8abe05668392d_5d5db79" src="https://github.com/user-attachments/assets/f348d041-e277-4d71-846a-3204d3e316c9" />
 <img width="350" height="133" alt="tumblr_eeccaa12f11471100b61b4d125da6436_988d4757_400" src="https://github.com/user-attachments/assets/c4c65570-2941-4af5-a410-c776f2958463" />
