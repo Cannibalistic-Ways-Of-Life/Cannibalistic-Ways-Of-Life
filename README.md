@@ -1,7 +1,7 @@
-<img width="400" height="205" alt="image" src="https://github.com/user-attachments/assets/8f7b03b5-bc3e-4480-a789-1d3c4b07afe4" />
- 
-### **Haiiiii we're the** ${\textsf{\color{#dc1717}Dead Beat Society}}$ <img src="https://i.ibb.co/SDzRJr33/soda.png" alt="soda" border="0">
-</h2> 
+![valentino graphic](https://github.com/user-attachments/assets/2d247bf8-7d3f-481c-8114-e6342224d0f0)
+
+### ${\textsf{\color{#dc1717}graphic coined by me}}$ <img src="https://i.ibb.co/SDzRJr33/soda.png" alt="soda" border="0">
+
 
 <img src="https://i.ibb.co/nqMPJB7m/hazard-hazard-tape.gif" alt="hazard-hazard-tape" border="0">
 <details>
@@ -22,13 +22,13 @@
 >
 > " Call us ${\textsf{\color{#667422}Vemödalan/Vemö}}$ <img src="https://i.ibb.co/mCSQ5g5q/emo2.gif" alt="emo2" border="0"> **`///`** ${\textsf{\color{#3bdacb}Sal/Sally}}$ <a href="https://ibb.co/396YFVLH"><img src="https://i.ibb.co/hJQ1drtv/salmask1.png" alt="salmask1" border="0"></a> **`///`** ${\textsf{\color{#6E3FA3}Bittergiggle}}$ <img src="https://i.ibb.co/SwKWMG80/phone.gif" alt="phone" border="0"> **`///`** ${\textsf{\color{#ffffff}Lamb}}$ 🐑
 >
->   "<img src="https://i.ibb.co/KpBZZPcy/guitar2.gif" alt="guitar2" border="0"> ${\textsf{\color{#be62b8}bittergiggle [garten of banban]}}$ <ins>**~~||~~**</ins> <img src="https://i.ibb.co/3mP8HbWP/games-pkm3.gif" alt="games-pkm3" border="0"> `pokemon(mimikyu my baby :3)` <ins>**~~||~~**</ins> <a href="https://ibb.co/xSf4C04Z"><img src="https://i.ibb.co/C5Mr1ZrL/weapon-gun2.gif" alt="weapon-gun2" border="0"></a> ${\textsf{\color{#890606}cowbow bebop}}$ <ins>**~~||~~**</ins> <img src="https://i.ibb.co/hFtypvLD/emo.gif" alt="emo" border="0"> `undertale` <ins>**~~||~~**</ins> ${\textsf{\color{#93dbe6}sally face}}$ <a href="hs://ibb.co/C51SMmh2"><img src="https://i.ibb.co/hR7TZLDf/salguitar.png" alt="salguitar" border="0"></a> <ins>**~~||~~**</ins> <img src="https://i.ibb.co/CK4q9Gtp/search-computer-0004.gif" alt="search-computer-0004" border="0"> `rick and morty`
+>   "<img src="https://i.ibb.co/KpBZZPcy/guitar2.gif" alt="guitar2" border="0"> ${\textsf{\color{#be62b8}bittergiggle [garten of banban]}}$ <ins>**~~||~~**</ins> <img src="https://i.ibb.co/3mP8HbWP/games-pkm3.gif" alt="games-pkm3" border="0"> `pokemon(mimikyu my baby :3)` <ins>**~~||~~**</ins> <a href="https://ibb.co/xSf4C04Z"><img src="https://i.ibb.co/C5Mr1ZrL/weapon-gun2.gif" alt="weapon-gun2" border="0"></a> ${\textsf{\color{#890606}cowbow bebop}}$ <ins>**~~||~~**</ins>
+>
+><img src="https://i.ibb.co/hFtypvLD/emo.gif" alt="emo" border="0"> `undertale` <ins>**~~||~~**</ins> ${\textsf{\color{#93dbe6}sally face}}$ <a href="hs://ibb.co/C51SMmh2"><img src="https://i.ibb.co/hR7TZLDf/salguitar.png" alt="salguitar" border="0"></a> <ins>**~~||~~**</ins> <img src="https://i.ibb.co/CK4q9Gtp/search-computer-0004.gif" alt="search-computer-0004" border="0"> `rick and morty` <ins>**~~||~~**</ins> ${\textsf{\color{#fc0349}valentine [hazbin hotel]}}$ <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/11c64670-ca12-4d0e-a817-8808e4503919" />
 >
 >«« <ins>~~**·═════════════·**~~</ins> <img src="https://i.ibb.co/7NGzXLZk/disc.gif" alt="disc" border="0"> <ins>~~**·═════════════·**~~</ins> »»
 >
-> *Ima* ${\textsf{\color{#93dbe6}Sal Fisher}}$ *and a* ${\textsf{\color{#00AE42}Bittergiggle}}$ *fictkin* <ins>*he is me and I am him*</ins> <img src="https://i.ibb.co/60dB6Y9X/animal-shark.gif" alt="animal-shark" border="0"> <img width="18" height="18" alt="image" src="https://github.com/user-attachments/assets/5cc723d7-9ecc-41fa-b587-80c9c5284a25" />
->
-> *I hide <ins>freely</ins> if you double me. <ins>Its nothing personal against you I just have a major discomfort with that*</ins> <img src="https://i.ibb.co/CpLkwXTc/ezgif-com-animated-gif-maker-1.gif" alt="ezgif-com-animated-gif-maker-1" border="0">
+> ### [My 1#](https://rentry.co/settleforadraw) ![weapon-pitchfork](https://github.com/user-attachments/assets/db41c7ce-d84a-4a94-843f-62229222b28b)
 >
 >«« <ins>**~~· ﹌﹌﹌﹌﹌﹌﹌﹌ ·~~**</ins> <img src="https://i.ibb.co/7NGzXLZk/disc.gif" alt="disc" border="0"> <ins>**~~· ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌ ·~~**</ins> »»
 > 
@@ -38,43 +38,29 @@
 > 
 > **<img src="https://i.ibb.co/Ps3cVJ8c/weapon-knife4.gif" alt="weapon-knife4" border="0"> ►** AroAceflux & ${\textsf{\color{#FF218C}Pan}}$ ${\textsf{\color{#FFD800}sex}}$ ${\textsf{\color{#21B1FF}ual}}$ <img src="https://i.ibb.co/pBKWMCwb/circus.gif" alt="circus" border="0">⠀**ദ്ദി(˵ •̀ ᴗ - ˵ )✧**  <ins>~~***///***~~</ins>  ![](https://komarev.com/ghpvc/?username=ClowningAround0&color=000000&style=flat-flat&label=the+local+homeless+population&abbreviated=true)
 > 
-> **<img src="https://i.ibb.co/bgfzDJfv/weapon-chainsaw.gif" alt="weapon-chainsaw" border="0"> ►** **𖡼.𖤣𖥧𖡼.𖤣𖥧** `Traumagenic system of 200+ alters!! 20+ with a child!Ive also been in regis since 2018!` <img src="https://i.ibb.co/hJJdFGRb/blood2.gif" alt="blood2" border="0">
+> **<img src="https://i.ibb.co/bgfzDJfv/weapon-chainsaw.gif" alt="weapon-chainsaw" border="0"> ►** **𖡼.𖤣𖥧𖡼.𖤣𖥧** `Traumagenic system of 200+ alters!! 20+ with a child! Ive also been in regis since 2018!` <img src="https://i.ibb.co/hJJdFGRb/blood2.gif" alt="blood2" border="0">
 >
 > **<img src="https://i.ibb.co/k2grTNRL/jumble.gif" alt="jumble" border="0"> ►** **(╥﹏╥)** **`BPD/NPD/HPD/ADHD`** <ins>**~~||~~**</ins> *`Dyslexia/Autism/Schizophrenia`* <ins>**~~||~~**</ins> **`Periodic paralasys/Short-Term Memoryloss`**  
 >
 > **<a href="https://ibb.co/6Rs7L7bB"><img src="https://i.ibb.co/Fb7LCLJV/computer.gif" alt="computer" border="0"></a>  ►** To learn more about ${\textsf{\color{#febf6d}us}}$ **!** :3  ( ≖‿  ≖ ) ***Heehee*** [*ca***rr***d*!](https://thesinsofyourfleshmayburnyou.carrd.co/) <img src="https://i.ibb.co/x8q6tM5w/hobby-scissors.gif" alt="hobby-scissors" border="0"> [**r***e****nt****ry*](https://rentry.co/AMERlCANlDlOT) <a href="https://ibb.co/kVpc50W9"><img src="https://i.ibb.co/bjxdQL82/tumblr-6183edbd22a281c63b60f816feaee9a1-643a73f1-75.webp" alt="tumblr-6183edbd22a281c63b60f816feaee9a1-643a73f1-75" border="0"></a> [**s***t~~raw~~*page](https://taste-of-flesh.straw.page/) <img src="https://i.ibb.co/SDzRJr33/soda.png" alt="soda" border="0"> [**t**~~**umb**~~*lr*](https://www.tumblr.com/blog/cannibalistic-ways-of-life)
 > 
-> <img src="https://i.ibb.co/FqJkRJNB/gore2.gif" alt="gore2" border="0"> **►** ${\textsf{\color{#be62b8}Important info!}}$ ; [**Proship Info1**](https://proshipresourcesfnaf.carrd.co/#) <ins>**`////`**</ins> [**Proship Info2**](https://rentry.co/shipmeaning) <ins>**~~////~~**</ins> [**Proship Info3**](https://define-proship.carrd.co/) <ins>**`////`**</ins>
+> <img src="https://i.ibb.co/FqJkRJNB/gore2.gif" alt="gore2" border="0"> **►** *Take time to* ${\textsf{\color{#37d81f}educate}}$ <ins>***not***</ins> ${\textsf{\color{#f31515}hate}}$ <a href="https://ibb.co/cSNrVPN7"><img src="https://i.ibb.co/jPLrsdL1/computer3.gif" alt="computer3" border="0"></a> <a href="https://ibb.co/cSNrVPN7"><img src="https://i.ibb.co/jPLrsdL1/computer3.gif" alt="computer3" border="0"></a> ; [**Proship Info1**](https://proshipresourcesfnaf.carrd.co/#) <ins>**`////`**</ins> [**Proship Info2**](https://rentry.co/shipmeaning) <ins>**~~////~~**</ins> [**Proship Info3**](https://define-proship.carrd.co/) <ins>**`////`**</ins>
 > [*SHAAAME!!* ; **TW**](https://loki1387.straw.page/antiwallofshame)  
 >
-> ### [My 1#](https://rentry.co/settleforadraw) <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/11c64670-ca12-4d0e-a817-8808e4503919" />
+> <p align="left">
+>   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31fockiwoiev3nx7s3kkxbw3pj4i&redirect=true">
+>     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31fockiwoiev3nx7s3kkxbw3pj4i&cover_image=true&theme=natemoo-re&show_offline=false&background_color=000000&interchange=false&profanity=false&bar_color=e0006c&bar_color_cover=true">
+>   </a>
+> </p>
 ***
- *Take time to* ${\textsf{\color{#37d81f}educate}}$ <ins>***not***</ins> ${\textsf{\color{#f31515}hate}}$ <a href="https://ibb.co/cSNrVPN7"><img src="https://i.ibb.co/jPLrsdL1/computer3.gif" alt="computer3" border="0"></a> <a href="https://ibb.co/cSNrVPN7"><img src="https://i.ibb.co/jPLrsdL1/computer3.gif" alt="computer3" border="0"></a>  <img src="https://i.ibb.co/r2DWkyGJ/teeth.gif" alt="teeth" border="0">
-***
-### <p align="center"> ${\textsf{\color{#227880}userboxes by}}$ ${\textsf{\color{#93dbe6}me!}}$ ${\textsf{\color{#227880}:3 not free to use}}$ <img src="https://i.ibb.co/SDzRJr33/soda.png" alt="soda" border="0"> </p>
+## <p align="center"> ${\textsf{\color{#ff0400}userboxes by me!}}$ ${\textsf{\color{#ff4340}:3 free to use [link git to credit]}}$ <img src="https://i.ibb.co/SDzRJr33/soda.png" alt="soda" border="0"> </p>
 
-
-
-***
 <p align="center"> <img width="700" height="300" alt="tumblr_b7b82c1305d42833790000c55f045bf8_db5bfb8" src="https://github.com/user-attachments/assets/3e1d8f3d-996d-42ca-b59f-75e65e6562f3" /> </p>
 
-***
 
-<p align="center"> <img width="405" height="86" alt="image" src="https://github.com/user-attachments/assets/11ec8045-e36e-45fd-8c62-ecf1f1730616" /> </p>
+<p align="center"> <img width="600" height="383" alt="image" src="https://github.com/user-attachments/assets/e6bcaa87-145d-4429-98b7-d4a438b3134f" /> </p>
+<p align="center"> <img width="600" height="383" alt="image" src="https://github.com/user-attachments/assets/bc52898c-b8aa-4388-b651-6dfacf2dfa00" /> </p>
 
-<p align="center"> <img width="405" height="86" alt="image" src="https://github.com/user-attachments/assets/fe9af073-83f9-423f-876c-6ce39828cfe5" /> </p>
-
-<p align="center"> <img width="405" height="87" alt="image" src="https://github.com/user-attachments/assets/70c5e3da-2a36-4718-b6e3-8acee929495f" /> </p> 
-
-<p align="center"> <img width="405" height="86" alt="image" src="https://github.com/user-attachments/assets/98017116-3ba0-4e4c-af35-d2bd5beed7db" /> </p>
-
-<p align="center"> <img width="540" height="243" alt="image" src="https://github.com/user-attachments/assets/5f4f24dd-8ab1-4be5-9337-2a9e0e24172b" /> </p>
-
- <p align="center">
-  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31fockiwoiev3nx7s3kkxbw3pj4i&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31fockiwoiev3nx7s3kkxbw3pj4i&cover_image=true&theme=spotify-embed&show_offline=false&background_color=000000&interchange=false&profanity=false&mode=dark&bar_color=59b7c9&bar_color_cover=false">
-  </a>
-</p>
 
 <p align="center"> <img src="https://i.ibb.co/b40Hrfp/divider.gif" alt="divider" border="0"> </p>
 
@@ -469,9 +455,12 @@
  
 `▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱`
 
-### ***ALL*** userboxes below by me FTU wth CREDIT {lnk git}
-<img width="500" height="283" alt="image" src="https://github.com/user-attachments/assets/e6bcaa87-145d-4429-98b7-d4a438b3134f" />
-<img width="500" height="283" alt="image" src="https://github.com/user-attachments/assets/bc52898c-b8aa-4388-b651-6dfacf2dfa00" />
+### First ***6*** userboxes below by me FTU wth CREDIT {lnk git}
+
+<img width="405" height="86" alt="image" src="https://github.com/user-attachments/assets/11ec8045-e36e-45fd-8c62-ecf1f1730616" />
+<img width="405" height="86" alt="image" src="https://github.com/user-attachments/assets/fe9af073-83f9-423f-876c-6ce39828cfe5" />
+<img width="405" height="87" alt="image" src="https://github.com/user-attachments/assets/70c5e3da-2a36-4718-b6e3-8acee929495f" />
+<img width="405" height="86" alt="image" src="https://github.com/user-attachments/assets/98017116-3ba0-4e4c-af35-d2bd5beed7db" />
 
 ![userbox11](https://github.com/user-attachments/assets/d509c622-cda2-4be5-8c6c-0ed525ae8911)
 
