@@ -470,8 +470,9 @@
 `▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱`
 
 ### ***ALL*** userboxes below by me FTU wth CREDIT {lnk git}
-![830EFC53-6107-46B0-8E7B-8BA165E5C884](https://github.com/user-attachments/assets/e6bcaa87-145d-4429-98b7-d4a438b3134f)
-![3D8457A2-BCF5-4F5C-9CBB-BBF248E61293](https://github.com/user-attachments/assets/bc52898c-b8aa-4388-b651-6dfacf2dfa00)
+<img width="500" height="283" alt="image" src="https://github.com/user-attachments/assets/e6bcaa87-145d-4429-98b7-d4a438b3134f" />
+<img width="500" height="283" alt="image" src="https://github.com/user-attachments/assets/bc52898c-b8aa-4388-b651-6dfacf2dfa00" />
+
 ![userbox11](https://github.com/user-attachments/assets/d509c622-cda2-4be5-8c6c-0ed525ae8911)
 
 <img width="350" height="133" alt="tumblr_47a1f639e4c2757dddb8abe05668392d_5d5db79" src="https://github.com/user-attachments/assets/f348d041-e277-4d71-846a-3204d3e316c9" />
