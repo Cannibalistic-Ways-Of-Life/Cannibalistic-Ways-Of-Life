@@ -175,6 +175,30 @@
     <summary>${\textsf{\color{#5a9453}✤ ‧ —– • Stamps [warning!] • —– ٠ ✤ }}$</summary> 
 
 *`▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱`*
+### ***ALL*** Valentino stamps below by me FTU wth CREDIT {lnk git}
+
+![val1-ezgif com-crop](https://github.com/user-attachments/assets/ffec7b74-2657-44cb-b616-7a677befcce0)
+![val2-ezgif com-crop](https://github.com/user-attachments/assets/fe667b82-1553-46d0-9c74-6101596485aa)
+![val3-ezgif com-crop](https://github.com/user-attachments/assets/621073c5-7009-40c7-8df5-cd1b7ec0b353)
+
+![val4-ezgif com-crop](https://github.com/user-attachments/assets/43a97200-4a8b-46c6-9fde-c57fd7d8abf0)
+![val5-ezgif com-crop](https://github.com/user-attachments/assets/eb362923-b985-45f8-9302-dd4047b116d1)
+![val6-ezgif com-crop](https://github.com/user-attachments/assets/37be548a-c9ab-4e42-87b9-4babcad01ca0)
+
+![val7-ezgif com-crop](https://github.com/user-attachments/assets/5c040d6b-7163-416b-85c6-42573104cc52)
+![val8-ezgif com-crop](https://github.com/user-attachments/assets/9739a2f4-61c9-416e-b957-4ffce827dbec)
+![val9-ezgif com-crop](https://github.com/user-attachments/assets/c2c3b2d7-332f-4187-af95-841aba901114)
+
+![val10-ezgif com-crop](https://github.com/user-attachments/assets/548a150a-a156-4ad7-807e-02159054ad77)
+![val11-ezgif com-crop](https://github.com/user-attachments/assets/da6eaf3a-12ab-48ba-bbd8-2cc7c5a70a5c)
+![val12-ezgif com-crop](https://github.com/user-attachments/assets/3ff36042-aff7-4195-9b5b-4024d859d4dc)
+
+![val13-ezgif com-crop](https://github.com/user-attachments/assets/7083e774-74f4-4f98-a4c5-989ec3a4f7ff)
+![val14-ezgif com-crop](https://github.com/user-attachments/assets/dc7da3d4-c278-4bc4-98db-8a0f81df2f20)
+![val15-ezgif com-crop](https://github.com/user-attachments/assets/eb8a4df8-016b-41a7-9c82-bd53e6644eae)
+
+
+ **<a href="https://ibb.co/xKLXnbm7"><img src="https://i.ibb.co/vCqVNWsj/dividers.webp" alt="dividers" border="0"></a>**
 
 <img src="https://i.ibb.co/Kzmkw7vN/68747470733a2f2f696d616765732d7769786d702d6564333061383662386334636138383737373335393463322e7769786d.png" alt="68747470733a2f2f696d616765732d7769786d702d6564333061383662386334636138383737373335393463322e7769786d" border="0">
 <img src="https://i.ibb.co/yFBGK7xg/apagenderstamp.jpg" alt="apagenderstamp" border="0">
