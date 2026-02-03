@@ -24,7 +24,8 @@
 >
 >   "<img src="https://i.ibb.co/KpBZZPcy/guitar2.gif" alt="guitar2" border="0"> ${\textsf{\color{#be62b8}bittergiggle [garten of banban]}}$ <ins>**~~||~~**</ins> <img src="https://i.ibb.co/3mP8HbWP/games-pkm3.gif" alt="games-pkm3" border="0"> `pokemon(mimikyu my baby :3)` <ins>**~~||~~**</ins> <a href="https://ibb.co/xSf4C04Z"><img src="https://i.ibb.co/C5Mr1ZrL/weapon-gun2.gif" alt="weapon-gun2" border="0"></a> ${\textsf{\color{#890606}cowbow bebop}}$ <ins>**~~||~~**</ins>
 >
-><img src="https://i.ibb.co/hFtypvLD/emo.gif" alt="emo" border="0"> `undertale` <ins>**~~||~~**</ins> ${\textsf{\color{#93dbe6}sally face}}$ <a href="hs://ibb.co/C51SMmh2"><img src="https://i.ibb.co/hR7TZLDf/salguitar.png" alt="salguitar" border="0"></a> <ins>**~~||~~**</ins> <img src="https://i.ibb.co/CK4q9Gtp/search-computer-0004.gif" alt="search-computer-0004" border="0"> `rick and morty` <ins>**~~||~~**</ins> ${\textsf{\color{#fc0349}valentine [hazbin hotel]}}$ <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/11c64670-ca12-4d0e-a817-8808e4503919" />
+><img src="https://i.ibb.co/hFtypvLD/emo.gif" alt="emo" border="0"> `undertale` <ins>**~~||~~**</ins> ${\textsf{\color{#93dbe6}sally face}}$ <a href="hs://ibb.co/C51SMmh2"><img src="https://i.ibb.co/hR7TZLDf/salguitar.png" alt="salguitar" border="0"></a> <ins>**~~||~~**</ins> <img src="https://i.ibb.co/CK4q9Gtp/search-computer-0004.gif" alt="search-computer-0004" border="0"> `rick and morty` <ins>**~~||~~**</ins> ${\textsf{\color{#fc0349}valentine [hazbin hotel]}}$ ![heart](https://github.com/user-attachments/assets/3a3c7ee1-e2d0-40a1-9018-14ceb322d058)
+>
 >
 >«« <ins>~~**·═════════════·**~~</ins> <img src="https://i.ibb.co/7NGzXLZk/disc.gif" alt="disc" border="0"> <ins>~~**·═════════════·**~~</ins> »»
 >
@@ -40,7 +41,7 @@
 > 
 > **<img src="https://i.ibb.co/bgfzDJfv/weapon-chainsaw.gif" alt="weapon-chainsaw" border="0"> ►** **𖡼.𖤣𖥧𖡼.𖤣𖥧** `Traumagenic system of 200+ alters!! 20+ with a child! Ive also been in regis since 2018!` <img src="https://i.ibb.co/hJJdFGRb/blood2.gif" alt="blood2" border="0">
 >
-> **<img src="https://i.ibb.co/k2grTNRL/jumble.gif" alt="jumble" border="0"> ►** **(╥﹏╥)** **`BPD/NPD/HPD/ADHD`** <ins>**~~||~~**</ins> *`Dyslexia/Autism/Schizophrenia`* <ins>**~~||~~**</ins> **`Periodic paralasys/Short-Term Memoryloss`**  
+> ![jumble](https://github.com/user-attachments/assets/c8eea556-ca2e-4714-ab28-dc75d654baba) **►** **(╥﹏╥)** **`BPD/NPD/HPD/ADHD`** <ins>**~~||~~**</ins> *`Dyslexia/Autism/Schizophrenia`* <ins>**~~||~~**</ins> **`Periodic paralasys/Short-Term Memoryloss`**  
 >
 > **<a href="https://ibb.co/6Rs7L7bB"><img src="https://i.ibb.co/Fb7LCLJV/computer.gif" alt="computer" border="0"></a>  ►** To learn more about ${\textsf{\color{#febf6d}us}}$ **!** :3  ( ≖‿  ≖ ) ***Heehee*** [*ca***rr***d*!](https://thesinsofyourfleshmayburnyou.carrd.co/) <img src="https://i.ibb.co/x8q6tM5w/hobby-scissors.gif" alt="hobby-scissors" border="0"> [**r***e****nt****ry*](https://rentry.co/AMERlCANlDlOT) <a href="https://ibb.co/kVpc50W9"><img src="https://i.ibb.co/bjxdQL82/tumblr-6183edbd22a281c63b60f816feaee9a1-643a73f1-75.webp" alt="tumblr-6183edbd22a281c63b60f816feaee9a1-643a73f1-75" border="0"></a> [**s***t~~raw~~*page](https://taste-of-flesh.straw.page/) <img src="https://i.ibb.co/SDzRJr33/soda.png" alt="soda" border="0"> [**t**~~**umb**~~*lr*](https://www.tumblr.com/blog/cannibalistic-ways-of-life)
 > 
