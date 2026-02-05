@@ -118,6 +118,15 @@
 <details>
     <summary>${\textsf{\color{#733b52}✤ ‧ —– • Gallery • —– ٠ ✤ }}$</summary> 
 
+<img width="1423" height="551" alt="image" src="https://github.com/user-attachments/assets/dfc7dee1-b78b-4884-baf6-81bd8d40bfb0" />
+![IMG_2012](https://github.com/user-attachments/assets/b0fb05f3-b83d-4bcf-a312-5de43b1c5b26)
+![IMG_2013](https://github.com/user-attachments/assets/3320ae81-c292-4bdf-b26a-4b7e4fa5836b)
+![IMG_2015](https://github.com/user-attachments/assets/d3183e27-a384-41f6-9ed8-b669ffbc9c81)
+![IMG_2016](https://github.com/user-attachments/assets/5a14a0ac-b9f8-4487-ad2f-56d154b3d355)
+![IMG_2059](https://github.com/user-attachments/assets/86a079b3-66a6-4a2e-8fc0-f144a59e118f)
+![IMG_2063](https://github.com/user-attachments/assets/a9d32b2f-6e5f-4020-a02c-9128b77af8d4)
+![IMG_2066](https://github.com/user-attachments/assets/90aedb86-397f-45ea-8765-30f180a540bb)
+
 <img width="160" height="150" alt="image" src="https://github.com/user-attachments/assets/6bcbf33f-5349-461f-8a26-21621cad64b9" />
 <img width="194" height="139" alt="Screenshot 2025-10-26 10 54 33 AM" src="https://github.com/user-attachments/assets/1684d08e-1471-481a-aabc-68dfbd3fc013" />
 <img width="255" height="261" alt="Screenshot 2025-10-25 1 01 00 PM" src="https://github.com/user-attachments/assets/9bf8dc0d-27b8-4c2f-a0c1-5a551be31775" />
