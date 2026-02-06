@@ -39,7 +39,7 @@
 > 
 > **<img src="https://i.ibb.co/Ps3cVJ8c/weapon-knife4.gif" alt="weapon-knife4" border="0"> ►** AroAceflux & ${\textsf{\color{#FF218C}Pan}}$ ${\textsf{\color{#FFD800}sex}}$ ${\textsf{\color{#21B1FF}ual}}$ <img src="https://i.ibb.co/pBKWMCwb/circus.gif" alt="circus" border="0">⠀**ദ്ദി(˵ •̀ ᴗ - ˵ )✧**  <ins>~~***///***~~</ins>  ![](https://komarev.com/ghpvc/?username=ClowningAround0&color=000000&style=flat-flat&label=the+local+homeless+population&abbreviated=true)
 > 
-> **<img src="https://i.ibb.co/bgfzDJfv/weapon-chainsaw.gif" alt="weapon-chainsaw" border="0"> ►** **𖡼.𖤣𖥧𖡼.𖤣𖥧** `Traumagenic system of 200+ alters!! 20+ with a child! Ive also been in regis since 2018!` <img src="https://i.ibb.co/hJJdFGRb/blood2.gif" alt="blood2" border="0">
+> **<img src="https://i.ibb.co/bgfzDJfv/weapon-chainsaw.gif" alt="weapon-chainsaw" border="0"> ►** **𖡼.𖤣𖥧𖡼.𖤣𖥧** [`Traumagenic`](https://pluralpedia.org/w/Traumagenic) / [`Atrium`](https://pluralpedia.org/w/Atrium_System) / [`Kingenic`](https://pluralpedia.org/w/Kingenic) system of 200+ alters!! 20+ with a child! Ive also been in regis since 2018! <img src="https://i.ibb.co/hJJdFGRb/blood2.gif" alt="blood2" border="0">
 >
 > ![jumble](https://github.com/user-attachments/assets/c8eea556-ca2e-4714-ab28-dc75d654baba) **►** **(╥﹏╥)** **`BPD/NPD/HPD/ADHD`** <ins>**~~||~~**</ins> *`Dyslexia/Autism/Schizophrenia`* <ins>**~~||~~**</ins> **`Periodic paralasys/Short-Term Memoryloss`**  
 >
