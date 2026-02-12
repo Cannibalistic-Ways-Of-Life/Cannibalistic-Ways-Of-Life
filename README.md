@@ -118,7 +118,7 @@
     <summary>${\textsf{\color{#733b52}✤ ‧ —– • Gallery • —– ٠ ✤ }}$</summary> 
 
 
-![nyan-cat-ezgif com-resize](https://github.com/user-attachments/assets/b1b062c6-7007-4758-9b80-2ede2cd573af)
+![nyan-cat-ezgif com-resize (1)](https://github.com/user-attachments/assets/1033617f-9473-4b69-ae60-46e99c158b41)
 
 
 <img width="160" height="251" alt="image" src="https://github.com/user-attachments/assets/dfc7dee1-b78b-4884-baf6-81bd8d40bfb0" />
