@@ -117,6 +117,10 @@
 <details>
     <summary>${\textsf{\color{#733b52}✤ ‧ —– • Gallery • —– ٠ ✤ }}$</summary> 
 
+
+![nyan-cat-ezgif com-resize](https://github.com/user-attachments/assets/b1b062c6-7007-4758-9b80-2ede2cd573af)
+
+
 <img width="160" height="251" alt="image" src="https://github.com/user-attachments/assets/dfc7dee1-b78b-4884-baf6-81bd8d40bfb0" />
 <img width="201" height="153" alt="Screenshot 2026-01-11 12 35 43 PM" src="https://github.com/user-attachments/assets/840852b1-8755-4484-937e-aee4c2d86a10" />
 <img width="242" height="220" alt="Screenshot 2026-01-24 12 48 15 AM" src="https://github.com/user-attachments/assets/aa7d8426-8278-407e-a2a9-5735a4250548" />
