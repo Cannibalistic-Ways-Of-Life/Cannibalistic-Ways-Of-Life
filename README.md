@@ -1,7 +1,7 @@
 <img width="848" height="505" alt="sallyfacebanner" src="https://github.com/user-attachments/assets/f20675b6-7915-480e-967b-52ad91a36d3e" />
 
 
-### ${\textsf{\color{#dc1717}i dont remeber where i got this}}$ <img src="https://i.ibb.co/SDzRJr33/soda.png" alt="soda" border="0">
+### ${\textsf{\color{#dc1717}graphic from @chuusarahabaki on tumblr}}$ <img src="https://i.ibb.co/SDzRJr33/soda.png" alt="soda" border="0">
 
 
 <img src="https://i.ibb.co/nqMPJB7m/hazard-hazard-tape.gif" alt="hazard-hazard-tape" border="0">
@@ -30,15 +30,16 @@
 >
 >«« <ins>~~**·═════════════·**~~</ins> <img src="https://i.ibb.co/7NGzXLZk/disc.gif" alt="disc" border="0"> <ins>~~**·═════════════·**~~</ins> »»
 >
-> ### [My 1#](https://rentry.co/settleforadraw) ![weapon-pitchfork](https://github.com/user-attachments/assets/db41c7ce-d84a-4a94-843f-62229222b28b)
+> *I am* [`Radqueer`](https://transid.org/books/stances/page/radqueer) *aswell as* <img width="48" height="29" alt="transsallyface1" src="https://github.com/user-attachments/assets/4f9ad583-e395-4f9e-870f-37216b99fac3" /> [`TransSallyFace`](https://transid.org/books/transcharacter-transperson/page/transsallyface) <ins>**~~/~~**</ins> [`TransLamb`](https://transid.org/books/transspecies/page/transsheep) <img width="45" height="27" alt="translamb1" src="https://github.com/user-attachments/assets/210b540f-24f6-4b73-bddc-3a52f38b40d9" />
+>
+> *No contact for harmful paras, and I do **not** claim the [xenosatanists](https://transid.org/books/stances/page/xenosatanism) as part of it nor do i support them*
 >
 >«« <ins>**~~· ﹌﹌﹌﹌﹌﹌﹌﹌ ·~~**</ins> <img src="https://i.ibb.co/7NGzXLZk/disc.gif" alt="disc" border="0"> <ins>**~~· ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌ ·~~**</ins> »»
 > 
 > <img src="https://i.ibb.co/39D529VX/weppon-blood.webp" alt="weppon-blood" border="0"> 
 >
->   **<img src="https://i.ibb.co/fzKKySnQ/drums.gif" alt="drums" border="0"> ►** **ꉂ(˵˃ ᗜ ˂˵)** [`nameself pronouns`](https://pronoun.fandom.com/wiki/Nameself_Pronouns) <img src="https://i.ibb.co/2YdfQLWt/games-pkm2.gif" alt="games-pkm2" border="0"> *I am* [`Radqueer`](https://transid.org/books/stances/page/radqueer) *aswell as* <img width="48" height="29" alt="transsallyface1" src="https://github.com/user-attachments/assets/4f9ad583-e395-4f9e-870f-37216b99fac3" /> [`TransSallyFace`](https://transid.org/books/transcharacter-transperson/page/transsallyface) <ins>**~~/~~**</ins> [`TransLamb`](https://transid.org/books/transspecies/page/transsheep) <img width="45" height="27" alt="translamb1" src="https://github.com/user-attachments/assets/210b540f-24f6-4b73-bddc-3a52f38b40d9" /> 
+>   **<img src="https://i.ibb.co/fzKKySnQ/drums.gif" alt="drums" border="0"> ►** **ꉂ(˵˃ ᗜ ˂˵)** [`nameself pronouns`](https://pronoun.fandom.com/wiki/Nameself_Pronouns) <img src="https://i.ibb.co/2YdfQLWt/games-pkm2.gif" alt="games-pkm2" border="0"> 
 >
-> *No contact for harmful paras*
 > 
 > **<img src="https://i.ibb.co/Ps3cVJ8c/weapon-knife4.gif" alt="weapon-knife4" border="0"> ►** honestly ${\textsf{\color{#FF218C}what am}}$ ${\textsf{\color{#FFD800}i even}}$ ${\textsf{\color{#21B1FF}doing here.}}$ <img src="https://i.ibb.co/pBKWMCwb/circus.gif" alt="circus" border="0">⠀**ദ്ദി(˵ •̀ ᴗ - ˵ )✧**  <ins>~~***///***~~</ins>  ![](https://komarev.com/ghpvc/?username=ClowningAround0&color=000000&style=flat-flat&label=the+local+homeless+population&abbreviated=true).
 > 
@@ -73,7 +74,7 @@
 
 ![valentino graphic](https://github.com/user-attachments/assets/4f2d3efb-7926-46ac-98de-121bd02c1fe1)
 
-#### <p align="center"> ${\textsf{\color{#227880}Graphic by}}$ [my pookie<3](https://github.com/hexcorez) ${\textsf{\color{#227880}:3 not free to use}}$ <img src="https://i.ibb.co/SDzRJr33/soda.png" alt="soda" border="0"> </p>
+#### <p align="center"> ${\textsf{\color{#227880}Graphic by}}$ [this person](https://github.com/hexcorez) ${\textsf{\color{#227880}:3 not free to use}}$ <img src="https://i.ibb.co/SDzRJr33/soda.png" alt="soda" border="0"> </p>
 
 <p align="center"> <img width="1500" height="1000" alt="Untitled181_20251029083221" src="https://github.com/user-attachments/assets/0ce9d554-312d-42e0-be64-4218523b5ab8" /> </p>
 
