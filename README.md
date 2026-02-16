@@ -1,4 +1,5 @@
-![valentino graphic](https://github.com/user-attachments/assets/2d247bf8-7d3f-481c-8114-e6342224d0f0)
+<img width="848" height="505" alt="sallyfacebanner" src="https://github.com/user-attachments/assets/f20675b6-7915-480e-967b-52ad91a36d3e" />
+
 
 ### ${\textsf{\color{#dc1717}graphic coined by me}}$ <img src="https://i.ibb.co/SDzRJr33/soda.png" alt="soda" border="0">
 
@@ -35,9 +36,11 @@
 > 
 > <img src="https://i.ibb.co/39D529VX/weppon-blood.webp" alt="weppon-blood" border="0"> 
 >
->   **<img src="https://i.ibb.co/fzKKySnQ/drums.gif" alt="drums" border="0"> ►** **ꉂ(˵˃ ᗜ ˂˵)** [`nameself pronouns`](https://pronoun.fandom.com/wiki/Nameself_Pronouns) <img src="https://i.ibb.co/2YdfQLWt/games-pkm2.gif" alt="games-pkm2" border="0">
+>   **<img src="https://i.ibb.co/fzKKySnQ/drums.gif" alt="drums" border="0"> ►** **ꉂ(˵˃ ᗜ ˂˵)** [`nameself pronouns`](https://pronoun.fandom.com/wiki/Nameself_Pronouns) <img src="https://i.ibb.co/2YdfQLWt/games-pkm2.gif" alt="games-pkm2" border="0"> *I am* [`Radqueer`](https://transid.org/books/stances/page/radqueer) *aswell as* <img width="48" height="29" alt="transsallyface1" src="https://github.com/user-attachments/assets/4f9ad583-e395-4f9e-870f-37216b99fac3" /> [`TransSallyFace`](https://transid.org/books/transcharacter-transperson/page/transsallyface) <ins>**~~/~~**</ins> [`TransLamb`](https://transid.org/books/transspecies/page/transsheep) <img width="45" height="27" alt="translamb1" src="https://github.com/user-attachments/assets/210b540f-24f6-4b73-bddc-3a52f38b40d9" /> 
+>
+> *I am open to <ins>any and all questions</ins>!! You may ask on my ata!! <33*
 > 
-> **<img src="https://i.ibb.co/Ps3cVJ8c/weapon-knife4.gif" alt="weapon-knife4" border="0"> ►** honestly ${\textsf{\color{#FF218C}what am}}$ ${\textsf{\color{#FFD800}i even}}$ ${\textsf{\color{#21B1FF}doing here.}}$ <img src="https://i.ibb.co/pBKWMCwb/circus.gif" alt="circus" border="0">⠀**ദ്ദി(˵ •̀ ᴗ - ˵ )✧**  <ins>~~***///***~~</ins>  ![](https://komarev.com/ghpvc/?username=ClowningAround0&color=000000&style=flat-flat&label=the+local+homeless+population&abbreviated=true)
+> **<img src="https://i.ibb.co/Ps3cVJ8c/weapon-knife4.gif" alt="weapon-knife4" border="0"> ►** honestly ${\textsf{\color{#FF218C}what am}}$ ${\textsf{\color{#FFD800}i even}}$ ${\textsf{\color{#21B1FF}doing here.}}$ <img src="https://i.ibb.co/pBKWMCwb/circus.gif" alt="circus" border="0">⠀**ദ്ദി(˵ •̀ ᴗ - ˵ )✧**  <ins>~~***///***~~</ins>  ![](https://komarev.com/ghpvc/?username=ClowningAround0&color=000000&style=flat-flat&label=the+local+homeless+population&abbreviated=true).
 > 
 > **<img src="https://i.ibb.co/bgfzDJfv/weapon-chainsaw.gif" alt="weapon-chainsaw" border="0"> ►** **𖡼.𖤣𖥧𖡼.𖤣𖥧** [`Traumagenic`](https://pluralpedia.org/w/Traumagenic) / [`Atrium`](https://pluralpedia.org/w/Atrium_System) / [`Kingenic`](https://pluralpedia.org/w/Kingenic) system of 200+ alters!! 20+ with a child! Ive also been in regis since 2018/2016! <img src="https://i.ibb.co/hJJdFGRb/blood2.gif" alt="blood2" border="0">
 >
@@ -45,7 +48,9 @@
 >
 > **<a href="https://ibb.co/6Rs7L7bB"><img src="https://i.ibb.co/Fb7LCLJV/computer.gif" alt="computer" border="0"></a>  ►** To learn more about ${\textsf{\color{#febf6d}us}}$ **!** :3  ( ≖‿  ≖ ) ***Heehee*** [*ca***rr***d*!](https://thesinsofyourfleshmayburnyou.carrd.co/) <img src="https://i.ibb.co/x8q6tM5w/hobby-scissors.gif" alt="hobby-scissors" border="0"> [**r***e****nt****ry*](https://rentry.co/AMERlCANlDlOT) <a href="https://ibb.co/kVpc50W9"><img src="https://i.ibb.co/bjxdQL82/tumblr-6183edbd22a281c63b60f816feaee9a1-643a73f1-75.webp" alt="tumblr-6183edbd22a281c63b60f816feaee9a1-643a73f1-75" border="0"></a> [**s***t~~raw~~*page](https://taste-of-flesh.straw.page/) <img src="https://i.ibb.co/SDzRJr33/soda.png" alt="soda" border="0"> [**at**~~**abo**~~*ok*](https://cannibalisticmindset.atabook.org/)
 > 
-> <img src="https://i.ibb.co/FqJkRJNB/gore2.gif" alt="gore2" border="0"> **►** *Take time to* ${\textsf{\color{#37d81f}educate}}$ <ins>***not***</ins> ${\textsf{\color{#f31515}hate}}$ <a href="https://ibb.co/cSNrVPN7"><img src="https://i.ibb.co/jPLrsdL1/computer3.gif" alt="computer3" border="0"></a> <a href="https://ibb.co/cSNrVPN7"><img src="https://i.ibb.co/jPLrsdL1/computer3.gif" alt="computer3" border="0"></a> ; [**Proship Info 1**](https://proshipresourcesaccessible.carrd.co/#) <ins>**`////`**</ins> [**Endo Info**](https://powertotheplurals.com/origin-of-endogenic-and-traumagenic-system-terminology-guest-post-by-the-trashcan-collective/) <ins>**~~////~~**</ins> [**Proship Info 2**](https://define-proship.carrd.co/) <ins>**`////`**</ins> [**Paraphilia Info**](https://www.psychiatry.org/File%20Library/Psychiatrists/Practice/DSM/APA_DSM-5-Paraphilic-Disorders.pdf)
+> <img src="https://i.ibb.co/FqJkRJNB/gore2.gif" alt="gore2" border="0"> **►** *Take time to* ${\textsf{\color{#37d81f}educate}}$ <ins>***not***</ins> ${\textsf{\color{#f31515}hate}}$ <a href="https://ibb.co/cSNrVPN7"><img src="https://i.ibb.co/jPLrsdL1/computer3.gif" alt="computer3" border="0"></a> <a href="https://ibb.co/cSNrVPN7"><img src="https://i.ibb.co/jPLrsdL1/computer3.gif" alt="computer3" border="0"></a> ;
+>
+> [**`Proship Info`**](https://proshipresourcesaccessible.carrd.co/#) <ins>**`////`**</ins> [**`Proship Info 2`**](https://define-proship.carrd.co/) <ins>**`////`**</ins> [**`Endo Info`**](https://powertotheplurals.com/origin-of-endogenic-and-traumagenic-system-terminology-guest-post-by-the-trashcan-collective/) <ins>**~~////~~**</ins> [**`Endo Info 2`**](https://endoresource.carrd.co/#studies) <ins>**`////`**</ins> [**`Paraphilia Info`**](https://www.psychiatry.org/File%20Library/Psychiatrists/Practice/DSM/APA_DSM-5-Paraphilic-Disorders.pdf)
 >
 > <p align="left">
 >   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31fockiwoiev3nx7s3kkxbw3pj4i&redirect=true">
@@ -64,6 +69,10 @@
 
 <p align="center"> <img src="https://i.ibb.co/b40Hrfp/divider.gif" alt="divider" border="0"> </p>
 
+## <p align="center"> ${\textsf{\color{#ff0400}Valentino graphic by me!}}$ ${\textsf{\color{#ff4340}:3 free to use [link git to credit]}}$ <img src="https://i.ibb.co/SDzRJr33/soda.png" alt="soda" border="0"> </p>
+
+![valentino graphic](https://github.com/user-attachments/assets/4f2d3efb-7926-46ac-98de-121bd02c1fe1)
+
 #### <p align="center"> ${\textsf{\color{#227880}Graphic by}}$ [my pookie<3](https://github.com/hexcorez) ${\textsf{\color{#227880}:3 not free to use}}$ <img src="https://i.ibb.co/SDzRJr33/soda.png" alt="soda" border="0"> </p>
 
 <p align="center"> <img width="1500" height="1000" alt="Untitled181_20251029083221" src="https://github.com/user-attachments/assets/0ce9d554-312d-42e0-be64-4218523b5ab8" /> </p>
@@ -78,38 +87,43 @@
 <details>
     <summary>${\textsf{\color{#ee7498}✤ ‧ —– • Flags • —– ٠ ✤ }}$</summary> 
 
-<img width="90" height="140" alt="image" src="https://github.com/user-attachments/assets/8799d494-0ded-4342-8ec5-acac415eccb1" />
-<img width="85" height="125" alt="image" src="https://github.com/user-attachments/assets/57e2f57a-9532-4dbd-a578-c2dec3a3d13e" /> 
+<img width="70" height="120" alt="image" src="https://github.com/user-attachments/assets/8799d494-0ded-4342-8ec5-acac415eccb1" />
+<img width="65" height="105" alt="image" src="https://github.com/user-attachments/assets/57e2f57a-9532-4dbd-a578-c2dec3a3d13e" /> 
  
-<img width="90" height="140" alt="image" src="https://github.com/user-attachments/assets/ce0e22e3-1a73-4444-9ca6-c0a59a7b5fc9" />  
-<img width="90" height="140" alt="image" src="https://github.com/user-attachments/assets/743b3151-4ce9-46f9-b77d-b7069534770c" /> 
+<img width="70" height="120" alt="image" src="https://github.com/user-attachments/assets/ce0e22e3-1a73-4444-9ca6-c0a59a7b5fc9" />  
+<img width="70" height="120" alt="image" src="https://github.com/user-attachments/assets/743b3151-4ce9-46f9-b77d-b7069534770c" /> 
  
-<img width="80" height="140" alt="image" src="https://github.com/user-attachments/assets/a8582c3c-896d-467e-8de1-4386aa538ac3" /> 
-<img width="105" height="140" alt="image" src="https://github.com/user-attachments/assets/3c0fbc7c-3a8c-4944-8e6b-9a9f81ae8656" />
+<img width="60" height="120" alt="image" src="https://github.com/user-attachments/assets/a8582c3c-896d-467e-8de1-4386aa538ac3" /> 
+<img width="85" height="120" alt="image" src="https://github.com/user-attachments/assets/3c0fbc7c-3a8c-4944-8e6b-9a9f81ae8656" />
 
-<img width="90" height="140" alt="image" src="https://github.com/user-attachments/assets/5f9e5d4d-8e2f-4a58-87ae-d6e8af522799" />
-<img width="85" height="140" alt="image" src="https://github.com/user-attachments/assets/8908fe79-ed00-4a7d-8395-66d571443279" />
+<img width="70" height="120" alt="image" src="https://github.com/user-attachments/assets/5f9e5d4d-8e2f-4a58-87ae-d6e8af522799" />
+<img width="65" height="120" alt="image" src="https://github.com/user-attachments/assets/8908fe79-ed00-4a7d-8395-66d571443279" />
 
-<img width="90" height="140" alt="image" src="https://github.com/user-attachments/assets/fad440f0-0c39-40bc-b773-2df7f207f2c6" />
+<img width="80" height="120" alt="image" src="https://github.com/user-attachments/assets/fad440f0-0c39-40bc-b773-2df7f207f2c6" />
+<img width="70" height="45" alt="radqueer" src="https://github.com/user-attachments/assets/1f06e7e9-29d8-467d-b321-5655d0fbbc0c" />
 
 
-**₍₍⚞(˶˃ ꒳ ˂˶)⚟⁾⁾** <sub>**1.** `Fictophilia is an attraction to fictional beings.`<sub> <a href="https://ibb.co/cSNrVPN7"><img src="https://i.ibb.co/jPLrsdL1/computer3.gif" alt="computer3" border="0"></a>
+
+**₍₍⚞(˶˃ ꒳ ˂˶)⚟⁾⁾** <sub>**1.** [`Fictophilia`](https://psycnet.apa.org/record/2021-12233-001) `is an attraction to fictional beings.`<sub> <a href="https://ibb.co/cSNrVPN7"><img src="https://i.ibb.co/jPLrsdL1/computer3.gif" alt="computer3" border="0"></a>
 
 **( ´･ω･)** <sub>**2.** `Anthrozoophilia an attraction to anthropomorphic animals, which falls under the furry spectrum`<sub> <a href="https://ibb.co/FqNg3J23"><img src="https://i.ibb.co/Tqpm2R62/tumblr-0e6b2b268d121728c665ada16db44d68-c3211345-75.webp" alt="tumblr-0e6b2b268d121728c665ada16db44d68-c3211345-75" border="0"></a>
 
 **٩( ^ᗜ^) ´-** <sub>**3.** `Omniphilia refers to having all or many paraphilias`<sub> <a href="https://ibb.co/MQwf5Bh"><img src="https://i.ibb.co/wjG7rcL/tumblr-e68f767694e002975b449eecd385ac52-32d869ef-75.webp" alt="tumblr-e68f767694e002975b449eecd385ac52-32d869ef-75" border="0"></a>
 
-**(๑ ˃̵ᴗ˂ ) ♡** <sub>**4.** `Teratophilia is an attraction to monsters` <a href="https://ibb.co/ns2PZHgL"><img src="https://i.ibb.co/BVDndXzC/tumblr-570a99c8e5bb00972f8fc8555947ec50-c3cf09e0-75.webp" alt="tumblr-570a99c8e5bb00972f8fc8555947ec50-c3cf09e0-75" border="0"></a>
+**(๑ ˃̵ᴗ˂ ) ♡** <sub>**4.** [`Teratophilia`](https://transid.org/books/zoophilia/page/teratophilia) `is an attraction to monsters` <a href="https://ibb.co/ns2PZHgL"><img src="https://i.ibb.co/BVDndXzC/tumblr-570a99c8e5bb00972f8fc8555947ec50-c3cf09e0-75.webp" alt="tumblr-570a99c8e5bb00972f8fc8555947ec50-c3cf09e0-75" border="0"></a>
 
-**✾(〜 ☌ω☌)〜✾** <sub>**5.** `Upisexual is an attraction to vampires`<sub> <a href="https://ibb.co/dnw0wjZ"><img src="https://i.ibb.co/FGLbLmp/cross7.gif" alt="cross7" border="0"></a>
+**✾(〜 ☌ω☌)〜✾** <sub>**5.** [`Upisexual`](https://lgbtqia.wiki/wiki/Upisexual) `is an attraction to vampires`<sub> <a href="https://ibb.co/dnw0wjZ"><img src="https://i.ibb.co/FGLbLmp/cross7.gif" alt="cross7" border="0"></a>
 
 **(≧ω≦)/** <sub>**6.** ~~`Cannibal`~~ `Flag for people attracted to` ~~`eating people/partners`~~ <sub> <a href="https://ibb.co/kVpc50W9"><img src="https://i.ibb.co/bjxdQL82/tumblr-6183edbd22a281c63b60f816feaee9a1-643a73f1-75.webp" alt="tumblr-6183edbd22a281c63b60f816feaee9a1-643a73f1-75" border="0"></a>
 
-**(๑'^'๑)︻デ═一** <sub>**7.** `Autonecrophilia is attraction to oneself as a` ~~`dead`~~ `body`<sub> <a href="https://ibb.co/0VJVYQFF"><img src="https://i.ibb.co/vvzvLDQQ/tumblr-0d13c3195e9d46a9e99bf21069cde6e1-3e0b9830-75.webp" alt="tumblr-0d13c3195e9d46a9e99bf21069cde6e1-3e0b9830-75" border="0"></a>
+**(๑'^'๑)︻デ═一** <sub>**7.** [`Autonecrophilia`](https://dictionary.apa.org/autonecrophilia) `is attraction to someone else having sex with oneself as a` ~~`dead`~~ `body`<sub> <a href="https://ibb.co/0VJVYQFF"><img src="https://i.ibb.co/vvzvLDQQ/tumblr-0d13c3195e9d46a9e99bf21069cde6e1-3e0b9830-75.webp" alt="tumblr-0d13c3195e9d46a9e99bf21069cde6e1-3e0b9830-75" border="0"></a>
 
-**( ˶°ㅁ°)** <sub>**8.** `Erotophonophilia is an attraction towards` ~~`murder`~~ `and` ~~`violence`~~ <sub> <a href="https://ibb.co/Z1gwJdwp"><img src="https://i.ibb.co/yBkMR0Mc/tumblr-8ad1a7143f169e6800bf6a2a7d8cde16-cc0c28b7-75.webp" alt="tumblr-8ad1a7143f169e6800bf6a2a7d8cde16-cc0c28b7-75" border="0"></a>
+**( ˶°ㅁ°)** <sub>**8.** [`Erotophonophilia`](https://transid.org/books/violence-related/page/erotophonophilia) `is an attraction towards` ~~`murder`~~ `and` ~~`violence`~~ <sub> <a href="https://ibb.co/Z1gwJdwp"><img src="https://i.ibb.co/yBkMR0Mc/tumblr-8ad1a7143f169e6800bf6a2a7d8cde16-cc0c28b7-75.webp" alt="tumblr-8ad1a7143f169e6800bf6a2a7d8cde16-cc0c28b7-75" border="0"></a>
 
-**◝(¬_¬")◜** <sub>**9.** `Hybristophilia is attraction to` `criminals` ~~`murderers`~~ <sub> <a href="https://ibb.co/21Y2MRTS"><img src="https://i.ibb.co/9k3X4B7h/tumblr-2315b3a21341194420da384396b66272-7da6b2fc-75.webp" alt="tumblr-2315b3a21341194420da384396b66272-7da6b2fc-75" border="0"></a>
+**◝(¬_¬")◜** <sub>**9.** [`Hybristophilia`](https://dictionary.apa.org/hybristophilia) `is attraction to` `criminals` ~~`murderers`~~ <sub> <a href="https://ibb.co/21Y2MRTS"><img src="https://i.ibb.co/9k3X4B7h/tumblr-2315b3a21341194420da384396b66272-7da6b2fc-75.webp" alt="tumblr-2315b3a21341194420da384396b66272-7da6b2fc-75" border="0"></a>
+
+**ฅ^-⩊-^ฅ** <sub>**10.** [`Radqueer`](https://transid.org/books/stances/page/radqueer) `is is quite litterally being unconditionally supportive of all identities, even the problimatic ones!` <sub> <img width="16" height="16" alt="image" src="https://github.com/user-attachments/assets/4e7dd7be-0508-4836-b901-9726bb3a7918" />
+
 </details>
 
 
