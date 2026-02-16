@@ -1,7 +1,7 @@
 <img width="848" height="505" alt="sallyfacebanner" src="https://github.com/user-attachments/assets/f20675b6-7915-480e-967b-52ad91a36d3e" />
 
 
-### ${\textsf{\color{#dc1717}graphic coined by me}}$ <img src="https://i.ibb.co/SDzRJr33/soda.png" alt="soda" border="0">
+### ${\textsf{\color{#dc1717}i dont remeber where i got this}}$ <img src="https://i.ibb.co/SDzRJr33/soda.png" alt="soda" border="0">
 
 
 <img src="https://i.ibb.co/nqMPJB7m/hazard-hazard-tape.gif" alt="hazard-hazard-tape" border="0">
