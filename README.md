@@ -38,7 +38,7 @@
 >
 >   **<img src="https://i.ibb.co/fzKKySnQ/drums.gif" alt="drums" border="0"> ►** **ꉂ(˵˃ ᗜ ˂˵)** [`nameself pronouns`](https://pronoun.fandom.com/wiki/Nameself_Pronouns) <img src="https://i.ibb.co/2YdfQLWt/games-pkm2.gif" alt="games-pkm2" border="0"> *I am* [`Radqueer`](https://transid.org/books/stances/page/radqueer) *aswell as* <img width="48" height="29" alt="transsallyface1" src="https://github.com/user-attachments/assets/4f9ad583-e395-4f9e-870f-37216b99fac3" /> [`TransSallyFace`](https://transid.org/books/transcharacter-transperson/page/transsallyface) <ins>**~~/~~**</ins> [`TransLamb`](https://transid.org/books/transspecies/page/transsheep) <img width="45" height="27" alt="translamb1" src="https://github.com/user-attachments/assets/210b540f-24f6-4b73-bddc-3a52f38b40d9" /> 
 >
-> *I am open to <ins>any and all questions</ins>!! You may ask on my ata!! <33*
+> *No contact for harmful paras*
 > 
 > **<img src="https://i.ibb.co/Ps3cVJ8c/weapon-knife4.gif" alt="weapon-knife4" border="0"> ►** honestly ${\textsf{\color{#FF218C}what am}}$ ${\textsf{\color{#FFD800}i even}}$ ${\textsf{\color{#21B1FF}doing here.}}$ <img src="https://i.ibb.co/pBKWMCwb/circus.gif" alt="circus" border="0">⠀**ദ്ദി(˵ •̀ ᴗ - ˵ )✧**  <ins>~~***///***~~</ins>  ![](https://komarev.com/ghpvc/?username=ClowningAround0&color=000000&style=flat-flat&label=the+local+homeless+population&abbreviated=true).
 > 
