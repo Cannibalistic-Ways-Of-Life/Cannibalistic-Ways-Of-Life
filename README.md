@@ -78,9 +78,6 @@
 
 <p align="center"> <img width="1500" height="1000" alt="Untitled181_20251029083221" src="https://github.com/user-attachments/assets/0ce9d554-312d-42e0-be64-4218523b5ab8" /> </p>
 
-#### <p align="center"> ${\textsf{\color{#227880}Graphic by}}$ [the rainy chaos sys](https://github.com/The-Forest-Syst3m) ${\textsf{\color{#227880}:3 not free to use}}$ <img src="https://i.ibb.co/SDzRJr33/soda.png" alt="soda" border="0"> </p>
-
-<p align="center"> <img width="1000" height="1000" alt="RATTTTT" src="https://github.com/user-attachments/assets/da2ec0b8-6715-402d-9bfe-27e2701aa813" /> </p>
 
 **◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤**
 
