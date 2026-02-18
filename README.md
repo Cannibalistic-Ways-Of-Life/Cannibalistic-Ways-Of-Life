@@ -32,7 +32,7 @@
 >
 > *I am* [`Radqueer`](https://transid.org/books/stances/page/radqueer) *aswell as* <img width="48" height="29" alt="transsallyface1" src="https://github.com/user-attachments/assets/4f9ad583-e395-4f9e-870f-37216b99fac3" /> [`TransSallyFace`](https://transid.org/books/transcharacter-transperson/page/transsallyface) <ins>**~~/~~**</ins> [`TransLamb`](https://transid.org/books/transspecies/page/transsheep) <img width="45" height="27" alt="translamb1" src="https://github.com/user-attachments/assets/210b540f-24f6-4b73-bddc-3a52f38b40d9" />
 >
-> *No contact for harmful paras, and I do **not** claim the [xenosatanists](https://transid.org/books/stances/page/xenosatanism) as part of it nor do i support them*
+> *No contact for harmful paras, and pro-recovery for them. I do **not** claim the [xenosatanists](https://transid.org/books/stances/page/xenosatanism) as part of it nor do i support them*
 >
 >«« <ins>**~~· ﹌﹌﹌﹌﹌﹌﹌﹌ ·~~**</ins> <img src="https://i.ibb.co/7NGzXLZk/disc.gif" alt="disc" border="0"> <ins>**~~· ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌ ·~~**</ins> »»
 > 
