@@ -72,7 +72,7 @@
 > 
 > <img src="https://i.ibb.co/FqJkRJNB/gore2.gif" alt="gore2" border="0"> **►** *Take time to* ${\textsf{\color{#37d81f}educate}}$ <ins>***not***</ins> ${\textsf{\color{#f31515}hate}}$ <a href="https://ibb.co/cSNrVPN7"><img src="https://i.ibb.co/jPLrsdL1/computer3.gif" alt="computer3" border="0"></a> <a href="https://ibb.co/cSNrVPN7"><img src="https://i.ibb.co/jPLrsdL1/computer3.gif" alt="computer3" border="0"></a> ;
 >
-> [**`Proship Info`**](https://proshipresourcesaccessible.carrd.co/#) <ins>**`////`**</ins> [**`Proship Info 2`**](https://define-proship.carrd.co/) <ins>**`////`**</ins> [**`Endo Info`**](https://powertotheplurals.com/origin-of-endogenic-and-traumagenic-system-terminology-guest-post-by-the-trashcan-collective/) <ins>**~~////~~**</ins> [**`Endo Info 2`**](https://endoresource.carrd.co/#studies) <ins>**`////`**</ins> [**`Paraphilia Info`**](https://www.psychiatry.org/File%20Library/Psychiatrists/Practice/DSM/APA_DSM-5-Paraphilic-Disorders.pdf)
+> [**`Proship Info`**](https://proshipresourcesaccessible.carrd.co/#) <ins>**`////`**</ins> [**`Proship Info 2`**](https://define-proship.carrd.co/) <ins>**`////`**</ins> [**`Endo Info`**](https://powertotheplurals.com/origin-of-endogenic-and-traumagenic-system-terminology-guest-post-by-the-trashcan-collective/) <ins>**~~////~~**</ins> [**`Endo Info 2`**](https://endoresource.carrd.co/) <ins>**`////`**</ins> [**`Paraphilia Info`**](https://www.psychiatry.org/File%20Library/Psychiatrists/Practice/DSM/APA_DSM-5-Paraphilic-Disorders.pdf)
 >
 > <p align="left">
 >   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31fockiwoiev3nx7s3kkxbw3pj4i&redirect=true">
